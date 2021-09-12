@@ -9,3 +9,6 @@
 - 📫 **How to reach me**: i4l4p8xu1@relay.firefox.com
 - 😄 **Pronouns:** He/Him
 - ⚡ **Fun fact:** This painting's artist was Adolf Hitler
+
+
+[[https://github.com/PreciousWarrior/PreciousWarrior/coolpainting.jpg|alt=Painting of a castle surrounded by mountains]]
