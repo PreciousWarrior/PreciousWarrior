@@ -10,4 +10,4 @@
 - 😄 **Pronouns:** He/Him
 - ⚡ **Fun fact:** This painting's artist was Adolf Hitler
 
-![Cool painting of castle surrounded by mountains](https://github.com/PreciousWarrior/PreciousWarrior/coolpainting.jpg)
+![Cool painting of castle surrounded by mountains](https://raw.githubusercontent.com/PreciousWarrior/PreciousWarrior/main/coolpainting.jpg)
