@@ -8,4 +8,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: i4l4p8xu1@relay.firefox.com
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Slaves under the last emperors of China wore pigtails so they could be picked out quickly 
+- ⚡ **Fun fact:** In the movie "Babe", the piglet was played by over 30 different piglets they outgrew the part so quickly during the production of the film 
