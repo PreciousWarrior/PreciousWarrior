@@ -9,5 +9,3 @@
 - 📫 **How to reach me**: i4l4p8xu1@relay.firefox.com
 - 😄 **Pronouns:** He/Him
 - ⚡ **Fun fact:** The meaning of Siberia is "sleeping land." 
-
-![Cool painting of castle surrounded by mountains](https://raw.githubusercontent.com/PreciousWarrior/PreciousWarrior/main/coolpainting.jpg)
