@@ -5,6 +5,7 @@ on:
   schedule:
     - cron: '0 0 * * *'
   workflow_dispatch:
+  push:
 jobs:
   update_fact:
     runs-on: ubuntu-latest
@@ -15,7 +16,7 @@ jobs:
       # Runs a script which updates the repository's fun fact
       - name: Run a multi-line script
         run: |
-          echo RUNNING
           cd $GITHUB_WORKSPACE
-          ls
+          FACT=$(curl -s https://raw.githubusercontent.com/assaf/dailyhi/master/facts.txt | shuf -n 1)
+          sed -i "11s/.*/- ⚡ **Fun fact:** $FACT /" README.md
           
