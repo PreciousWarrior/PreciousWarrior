@@ -8,4 +8,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: i4l4p8xu1@relay.firefox.com
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The blind cavefish is born with eyes, but they fall off as the fish grows 
+- ⚡ **Fun fact:** The longest chapter in the Bible is Psalm 119, which is 176 verses 
