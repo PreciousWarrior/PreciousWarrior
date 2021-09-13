@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A butterfly has to have a body temperature greater than 86 degrees to be able to fly. 
+- ⚡ **Fun fact:** Psychokinesis refers to the ability of moving objects through psychic power. 
