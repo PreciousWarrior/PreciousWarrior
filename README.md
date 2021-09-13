@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1905, the first pizzeria in the U.S. opened in New York City. 
+- ⚡ **Fun fact:** The word Popcorn is derived from the middle English word "poppe," which means "explosive sound". 
