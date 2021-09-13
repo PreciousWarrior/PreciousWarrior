@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+![My GitHub stats](https://github-readme-stats.vercel.app/api?username=PreciousWarrior&show_icons=true&theme=dark)
+
+![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=PreciousWarrior&theme=dark)
 
 - 🔭 **I’m currently working on** like 100 projects, 5% of which I will probably manage to actually complete.
 - 🌱 **I’m currently learning** Java, Shell scripting, Ethical Hacking, Machine Learning
@@ -8,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the marriage ceremony of the Ancient Inca Indians of Peru, the couple was considered officially wed when they took off their sandals and handed them to each other 
+- ⚡ **Fun fact:** Only 23% of New Zealand families have more than two children 
