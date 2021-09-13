@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Gorilla gorilla gorilla is the scientific name for the animal gorilla. 
+- ⚡ **Fun fact:** A man named Charles Osborne had the hiccups for approximately sixty-nine years. 
