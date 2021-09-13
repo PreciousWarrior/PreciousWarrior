@@ -1,0 +1,20 @@
+name: Update Fun Fact
+
+# Controls when the workflow will run
+on:
+  schedule:
+    - cron: '0 0 * * *'
+jobs:
+  update_fact:
+    runs-on: ubuntu-latest
+    steps:
+      # Checks-out your repository under $GITHUB_WORKSPACE, so your job can access it
+      - uses: actions/checkout@v2
+
+      # Runs a script which updates the repository's fun fact
+      - name: Run a multi-line script
+        run: |
+          echo RUNNING
+          cd $GITHUB_WORKSPACE
+          ls
+          
