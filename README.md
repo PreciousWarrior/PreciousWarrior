@@ -5,7 +5,7 @@
 ![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=PreciousWarrior&theme=dark)
 
 - 🔭 **I’m currently working on** like 100 projects, 5% of which I will probably manage to actually complete.
-- 🌱 **I’m currently learning** Java, Shell scripting, Ethical Hacking, Machine Learning
+- 🌱 **I’m currently learning** Typescript, Shell scripting, Ethical Hacking, Machine Learning
 - 👯 **I’m looking to collaborate on** Anything cool
 - 🤔 **I’m looking for help with** Fucking CSS and linking images on markdown
 - 💬 **Ask me about** Javascript, Discord API, Linux
