@@ -8,4 +8,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: i4l4p8xu1@relay.firefox.com
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The meaning of Siberia is "sleeping land." 
+- ⚡ **Fun fact:** Slaves under the last emperors of China wore pigtails so they could be picked out quickly 
