@@ -19,4 +19,9 @@ jobs:
           cd $GITHUB_WORKSPACE
           FACT=$(curl -s https://raw.githubusercontent.com/assaf/dailyhi/master/facts.txt | shuf -n 1)
           sed -i "11s/.*/- ⚡ **Fun fact:** $FACT /" README.md
+          git config user.name github-actions
+          git config user.email github-actions@github.com
+          git add .
+          git commit -m "Update fun fact"
+          git push
           
