@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** During World War II, the very first bomb dropped on Berlin by the Allies killed the only elephant in the Berlin Zoo. 
+- ⚡ **Fun fact:** Coca-Cola was the first soft drink to be consumed in outer space. 
