@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Swiss engineer George de Mestral, who got the idea after noticing burrs were sticking to his pants after his regular walks through the woods, invented Velcro.. 
+- ⚡ **Fun fact:** Approximately 10.5 gallons of water is used in a dishwasher. Washing the dishes by hand can use up to 20 gallons of water. 
