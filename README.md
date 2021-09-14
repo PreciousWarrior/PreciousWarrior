@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are more pigs than humans in Denmark. 
+- ⚡ **Fun fact:** The game of squash originated in the United Kingdom. It came about after a few boys, who were waiting for their turn to play racquets, knocked a ball around in a confined area adjoining the racquets court. 
