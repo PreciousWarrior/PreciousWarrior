@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There have been 191 coops in Bolivia since it became a sovereign country in 1825. 
+- ⚡ **Fun fact:** Annually, fires that occur at home kill more Americans than all natural disasters combined. 
