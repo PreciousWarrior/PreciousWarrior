@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** While still in college, Bill Gates and Paul Allen once built a special purpose machine called "Traff-O-Data." It was a machine that would analyze information gathered by traffic monitors. They never found any buyers.. 
+- ⚡ **Fun fact:** Pebbles cereal was actually named after the shape of the cereal and not the Pebbles Flintstone character. 
