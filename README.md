@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the 18th century, potatoes were given out as a dessert. They were served in a napkin, salted and hot. 
+- ⚡ **Fun fact:** Brazil produces the most oranges in the world. 
