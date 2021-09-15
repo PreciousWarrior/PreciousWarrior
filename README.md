@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Alexander Graham Bell, the inventor of the telephone, never telephoned his wife or mother because they were both deaf. 
+- ⚡ **Fun fact:** In October 1973, Swedish sweet maker Roland Ohisson of Falkenberg was buried in a coffin made of nothing but chocolate. 
