@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On a Canadian two dollar bill, the flag flying over the Parliament building is an American flag. 
+- ⚡ **Fun fact:** If an identical twin grows up without having a certain tooth, the other twin will most likely also grow up with that tooth missing. 
