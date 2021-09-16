@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Annually, an Australian eats 15 kg of bananas, which comes out to 27 meters of bananas. 
+- ⚡ **Fun fact:** In France, it is illegal for a person to kiss another on railways. 
