@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The sound made by the Victoria Falls in Zimbabwe is so loud that it can be heard 40 miles away. 
+- ⚡ **Fun fact:** The total mileage driven by all U-Haul trucks in a year is enough to move a person from the Earth to the moon five times a day for an entire year. 
