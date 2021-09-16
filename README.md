@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The United States has paved enough roads to circle the Earth over 150 times.. 
+- ⚡ **Fun fact:** Robert Southey wrote the story "Goldilocks and the Three Bears" in 1834. 
