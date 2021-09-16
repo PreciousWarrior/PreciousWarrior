@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** If an identical twin grows up without having a certain tooth, the other twin will most likely also grow up with that tooth missing. 
+- ⚡ **Fun fact:** All 50 states are listed across the top of the Lincoln Memorial on the back of the $5 bill. 
