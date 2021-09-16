@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 410 A.D. Alaric the Visigoth demanded that Rome give him three thousand pounds of pepper as ransom. 
+- ⚡ **Fun fact:** On average it takes a shark seven days to replace a tooth. 
