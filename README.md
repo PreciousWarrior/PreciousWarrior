@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Over 100 million birds die annually by crashing into glass windows in the United States. 
+- ⚡ **Fun fact:** In the UK, one third of accidental deaths that happen occur in the home. 
