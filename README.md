@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Honolulu, Hawaii boasts the only royal palace in the United States of America. 
+- ⚡ **Fun fact:** Over 20 million BluBlocker sunglasses have been sold since its debut in 1986. They now come in over 100 different styles. 
