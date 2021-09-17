@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The deepest underwater penguin dive is 1,772 feet by an Emperor Penguin. 
+- ⚡ **Fun fact:** Mars is the home of Olympus Mons, the largest known volcano in our solar system. 
