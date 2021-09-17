@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Australia has had stamps that actually look like gems. In 1995 and 1996 they used a special technology to make the stamps look like diamonds and opals.. 
+- ⚡ **Fun fact:** Billiards used to be so popular at one time that cigarette cards were issued featuring players. 
