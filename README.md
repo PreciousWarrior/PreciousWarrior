@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** France, Switzerland, United Kingdom, Greece, and Australia have always been in the modern Olympics since it began in 1896. 
+- ⚡ **Fun fact:** The first open heart surgery was performed by Dr. Daniel Hall Williams in 1893. 
