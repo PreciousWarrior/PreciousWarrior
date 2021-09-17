@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** One out of 20 people have an extra rib. 
+- ⚡ **Fun fact:** Australia has had stamps that actually look like gems. In 1995 and 1996 they used a special technology to make the stamps look like diamonds and opals.. 
