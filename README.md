@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Serving ice cream on cherry pie was once illegal in Kansas. 
+- ⚡ **Fun fact:** Each year in America there are about 300,000 deaths that can be attributed to obesity. 
