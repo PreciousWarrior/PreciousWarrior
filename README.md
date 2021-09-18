@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1992, approximately 750 deaths occurred in the United States due to workplace violence. 
+- ⚡ **Fun fact:** Five Jell-O flavors that flopped: celery, coffee, cola, apple, andchocolate.. 
