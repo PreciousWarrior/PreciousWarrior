@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The titan arum flower is the largest flower in the world and gives off a horrible odor that smells like rotting flesh when it blooms. 
+- ⚡ **Fun fact:** People who meet their calcium need reduce their risk of developing kidney stones. 
