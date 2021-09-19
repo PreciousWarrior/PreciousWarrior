@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The last thing Elvis Presley ate before he died was four scoops of ice cream and 6 chocolate chip cookies. 
+- ⚡ **Fun fact:** The reason why the Mexican sombrero hat is so wide is to provide shade for the entire body. 
