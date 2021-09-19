@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Some birds have been know to put ants into their feathers because the ants squirt formic acid, which kills parasites. 
+- ⚡ **Fun fact:** In London, during rush hour traffic moves on average at 13 kilometres an hour. 
