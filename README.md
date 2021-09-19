@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Termites work 24 hours per day -- they do not sleep. 
+- ⚡ **Fun fact:** Some birds have been know to put ants into their feathers because the ants squirt formic acid, which kills parasites. 
