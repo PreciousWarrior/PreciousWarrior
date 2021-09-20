@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, he ratio of yellow kernels to white kernals in a bag of popcorn is 9:1. 
+- ⚡ **Fun fact:** The amount of Kit Kat chocolate bars that are made at the York factory every 15 minutes are enough to outstack the Eiffel Tower. 
