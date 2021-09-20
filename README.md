@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Native Indians have been known to paint their doors blue, which they believe keeps the bad spirits out. 
+- ⚡ **Fun fact:** Owls swallow their prey whole because they have no teeth. After approximately 12 hours they cough up the feathers, bones, and fur in a shape of a football pellet. 
