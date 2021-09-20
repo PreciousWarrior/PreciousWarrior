@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The amount of Kit Kat chocolate bars that are made at the York factory every 15 minutes are enough to outstack the Eiffel Tower. 
+- ⚡ **Fun fact:** Harley Proctor got the idea to name the soap "Ivory" while he was listening to a bible reading at a church in 1879. 
