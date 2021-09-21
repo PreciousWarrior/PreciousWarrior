@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** When a women is pregnant, her senses are all heightened. 
+- ⚡ **Fun fact:** The CN Tower located in Toronto, Ontario Canada took a total construction time of 40 months to complete at an original cost of $63 million. 
