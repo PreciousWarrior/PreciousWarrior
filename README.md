@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The adult human body requires about 88 pounds of oxygen daily. 
+- ⚡ **Fun fact:** Former U.S. president Ronald Reagan worked as a lifeguard in his youth at a beach near Dixon, Illinois and saved over 77 lives. 
