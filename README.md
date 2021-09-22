@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Huge Moore, the inventor of Dixie cups got the idea for the name from a neighboring factory, the Dixie Doll Company. 
+- ⚡ **Fun fact:** The right lung of a human is larger than the left one. This is because of the space and placement of the heart. 
