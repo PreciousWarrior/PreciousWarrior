@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The words moron, imbecile, and idiot are not interchangable. The one with the highest level of intelligence is a moron, followed, by an imbecile, and then idiot. 
+- ⚡ **Fun fact:** Even though the rose does not bear any fruit, the rose hips have more Vitamin C than most vegetables and fruits. 
