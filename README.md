@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average weight of a newborn baby is 7 lbs. 6 oz. For a triplet baby it is 3 lbs. 12 oz. 
+- ⚡ **Fun fact:** The words moron, imbecile, and idiot are not interchangable. The one with the highest level of intelligence is a moron, followed, by an imbecile, and then idiot. 
