@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In India, a 9-year-old girl was "married" to a stray dog, which tribal custom requires in order to protect a child whose first tooth appears on the upper gum. 
+- ⚡ **Fun fact:** In an episode of the 1962 cartoon The Jestons, Jane Jetson is talking through a video phone. The phone number of The Jetsons was VENUS-1234. 
