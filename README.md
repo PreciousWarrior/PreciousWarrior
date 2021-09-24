@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, a Canadian girl owns seven Barbie dolls, whereas an American girl owns eight. 
+- ⚡ **Fun fact:** In 1988, the largest ice cream sundae in history was made. It was made in Edmonton, Alberta, Canada, and weighed in at over 24 tons. 
