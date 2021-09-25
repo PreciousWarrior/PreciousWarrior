@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** When Burger King introduced the Whopper Sandwich in 1957, it cost only thirty-seven cents. 
+- ⚡ **Fun fact:** Arthur Giblin was the inventor of the first "flushable" toilet. 
