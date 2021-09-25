@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The "naked recreation and travel" industry has grown by 233% in the past decade. 
+- ⚡ **Fun fact:** Dueling is legal in Paraguay as long as both parties are registered blood donors. 
