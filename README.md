@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Dueling is legal in Paraguay as long as both parties are registered blood donors. 
+- ⚡ **Fun fact:** The first Labor Day holiday was celebrated on Tuesday, September 5, 1882, in New York City. 
