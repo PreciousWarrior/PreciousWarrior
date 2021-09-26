@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1980, there was only one country in the world with no telephones - Bhutan. 
+- ⚡ **Fun fact:** Seven asteroids were especially named for the Challenger astronauts who were killed in the 1986 failed launch of the space shuttle. 
