@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** 75% of all raisins eaten by people in the United States are eaten at breakfast. 
+- ⚡ **Fun fact:** The mother of famous astronomer Johannes Kepler was accused of being a witch. 
