@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A female ferret can die if she goes into heat and cannot find a mate. 
+- ⚡ **Fun fact:** The average price for a major league baseball game in 2004 is $19.82. 
