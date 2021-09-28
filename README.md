@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Every day more money is printed for Monopoly than the US Treasury. 
+- ⚡ **Fun fact:** The rarest coffee in the world is Kopi Luwak, which is found in Indonesia. It cost about $300 a pound. 
