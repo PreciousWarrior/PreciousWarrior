@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** To make an espresso 42 coffee beans are needed. 
+- ⚡ **Fun fact:** Half of a cup of figs will give you just as much calcium as half a cup of milk. 
