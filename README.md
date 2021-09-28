@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Clans of long ago that wanted to get rid of their unwanted peoplewithout killing them used to burn their houses down - hence theexpression "toget fired.". 
+- ⚡ **Fun fact:** Approximately 850 peanuts make a 18 oz jar of peanut butter. 
