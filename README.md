@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** When telephone companies first began hiring telephone operators, they chose teenage boys for the job. They switched to women because the teenage boys were wrestling instead of working and pulling pranks on callers. 
+- ⚡ **Fun fact:** Touching and stroking a plant will aid in it growing healthy. 
