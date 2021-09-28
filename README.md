@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1836, Mexican General Santa Anna held an elaborate state funeral for his amputated leg. updated. 
+- ⚡ **Fun fact:** Clans of long ago that wanted to get rid of their unwanted peoplewithout killing them used to burn their houses down - hence theexpression "toget fired.". 
