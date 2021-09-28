@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In August 1999, Lori Lynn Lomeli set a record by spinning 82 Hula Hoops at the same time for three full revolutions. 
+- ⚡ **Fun fact:** Half of the 42 U.S. Presidents are of Irish descent. 
