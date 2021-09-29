@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Golden Gate Bridge was first opened in 1937. 
+- ⚡ **Fun fact:** The Ice Cream cone was invented in the summer of 1904 by Charles Menches. It made its debut one year later at the St. Louis World Fair. 
