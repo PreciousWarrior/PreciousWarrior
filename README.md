@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** From all the states, Montana has the most different species of animals. 
+- ⚡ **Fun fact:** The external tank on space shuttles is not painted. It is the only part of the shuttle that is lost after launch, so it is not necessary to worry about metal corrosion.. 
