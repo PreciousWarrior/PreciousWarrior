@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A survey done by Clairol 10 years ago came up with 46% of men stating that it was okay to color their hair. Now 66% of men admit to coloring their hair. 
+- ⚡ **Fun fact:** The silkworm moth has lost the ability to fly ever since it has been domesticated. 
