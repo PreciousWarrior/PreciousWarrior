@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Fossilized bird droppings are one of the chief exports of Nauru, an island nation in the Western Pacific. 
+- ⚡ **Fun fact:** One out of every five births in the United States are delivered by Cesarean section. 
