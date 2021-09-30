@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A lifespan of an eyelash is approximately 150 days. 
+- ⚡ **Fun fact:** In 1796, Napoleon was only 26 years old when he took command of the French Army of Italy. 
