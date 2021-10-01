@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The longest one-syllable word in the English language is "screeched.". 
+- ⚡ **Fun fact:** Vasaloppet, which is located in Sweden is the oldest, longest, and the biggest cross-country ski race in the world. Every year, 14,000 people compete in the race. 
