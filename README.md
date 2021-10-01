@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1890, there was no sunshine for the whole month of December in Westminster in London.. 
+- ⚡ **Fun fact:** Of all the days of the week, the most popular day for people to eat ice cream is Sunday. 
