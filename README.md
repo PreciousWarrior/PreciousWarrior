@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The size of a red blood cell is 708 microns. This is equivalent to one millionth of a meter. 
+- ⚡ **Fun fact:** The only species of turtle that lives in the open ocean is the sea turtle. 
