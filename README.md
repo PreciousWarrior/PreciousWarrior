@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In ancient Rome, it was considered a sign of leadership to be born with a crooked nose. 
+- ⚡ **Fun fact:** The company Chanel claims that every 30 seconds, somewhere in the world, a bottle of Chanel No 5 is sold. 
