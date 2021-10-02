@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The length of brink of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario, Canada is 2600 feet. 
+- ⚡ **Fun fact:** The first known American novelist to hand in a manuscript that was typed was Mark Twain. His typewriter was a Remington No.1, which was invented by Christopher Sholes and Carlos Glidden.. 
