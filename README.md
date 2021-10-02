@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Female and male black bears cannot tolerate being around each other except when they breed. 
+- ⚡ **Fun fact:** The stage were the television sitcom "Friends" is shot on is said to be haunted. 
