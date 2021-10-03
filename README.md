@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Turkeys can have heart attacks. When the Air Force was conducting test runs and breaking the sound barrier, fields of turkeys dropped dead because of heart attacks. 
+- ⚡ **Fun fact:** A piece of French toast that was partially eaten by Justin Timberlake sold on eBay. 
