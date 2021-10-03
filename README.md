@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** New Jersey has a spoon museum that has over 5,400 spoons from across the world. 
+- ⚡ **Fun fact:** Harley Proctor got the idea to name the soap "Ivory" while he was listening to a bible reading at a church in 1879. 
