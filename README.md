@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Finnish folklore states that when Santa comes to Finland to deliver gifts, he leaves his sleigh behind and rides on a goat named Ukko instead. 
+- ⚡ **Fun fact:** There was a time in Japan where a wife being left handed was a ground for divorce. 
