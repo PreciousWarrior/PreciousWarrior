@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The best selling Crayola crayon box is the set of 24 crayons. 
+- ⚡ **Fun fact:** Basketball superstar Wilt Chamberlain holds 56 NBA records. 
