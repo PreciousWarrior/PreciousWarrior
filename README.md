@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** During the Roman times, people used urine, called lotium in Latin, as a hair product. 
+- ⚡ **Fun fact:** A world record 328 pound ovarian cyst was removed from a woman in Galveston, Texas, in 1905. updated. 
