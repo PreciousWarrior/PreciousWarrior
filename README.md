@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The state of California has more 7-Eleven stores than any other state. There are approximately 1,200 stores. 
+- ⚡ **Fun fact:** In 1281, the Mongol army of Kublai Khan tried to invade Japan but were ravaged by a hurricane that destroyed their fleet. 
