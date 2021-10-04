@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Hummingbirds are the only animal that can fly backwards. 
+- ⚡ **Fun fact:** In Britain, there are approximately 50,000 pubs with 17,000 different names. 
