@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Sailors once thought that wearing a gold earring would improve their eyesight. 
+- ⚡ **Fun fact:** People with darker skin will not wrinkle as fast as people with lighter skin. 
