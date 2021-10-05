@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1976, fourteen banks merged to form a bank credit card called "Mastercharge." This was later renamed to what is now know as "Mastercard.". 
+- ⚡ **Fun fact:** Natural gas does not have any odor. In order to detect a gas leak, some gas companies add a chemical that smells similar like rotten eggs.. 
