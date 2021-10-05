@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** At the equator the Earth spins at about 1,038 miles per hour. 
+- ⚡ **Fun fact:** The mythical Scottish town of Brigadoon appears for one day every one hundred years. 
