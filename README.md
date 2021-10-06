@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** People that use mobile phones are 2.5 time more likely to develop cancer in areas of the brain that are adjacent to the ear they use to talk on the mobile phone. 
+- ⚡ **Fun fact:** Budweiser beer is named after a town in Czechoslovakia. 
