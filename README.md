@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Men are four times more likely to be struck by lightning than women. 
+- ⚡ **Fun fact:** It would take 29 million years for a car travelling 100 miles per hour to reach the nearest star. 
