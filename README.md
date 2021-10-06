@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Eating about twenty tart cherries a day could reduce inflammatory pain and headache pain. 
+- ⚡ **Fun fact:** The highest consumption of Pizza occurs during Super Bowl week. 
