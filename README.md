@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The name for the sign "- ⚡ **Fun fact:** Pikeville, Kentucky consumes the most Pepsi per capita then any other American city. " which represents the world "and" is ampersand. 
+- ⚡ **Fun fact:** A salmon with two mouths, two sets of teeth and two tongues was caught by Bob Bateman of Canada. 
