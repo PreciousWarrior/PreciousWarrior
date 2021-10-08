@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Cricket chirping can tell the temperature outside. Counting how many times a cricket chirps in 15 seconds and then adding 40 to that number will approximately tell you what the temperature is in Fahrenheit. 
+- ⚡ **Fun fact:** The electric chair was invented by a dentist. 
