@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** One out of five people that eat ice cream binge on ice cream in the middle of the night. The person is usually between 18 - 24 years old. 
+- ⚡ **Fun fact:** The USSR launched the world's first artificial satellite, Sputnik 1, in 1957.. 
