@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Over 250 million Slinky toys have been sold since its debut in 1946. 
+- ⚡ **Fun fact:** On October 15, 1794, the first silver dollar coins were released to be circulated to the public. 
