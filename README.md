@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Great White Shark can grow to be more than twenty feet long and can weigh approximately 4,000 pounds. 
+- ⚡ **Fun fact:** One out of 200 women is colorblind. 
