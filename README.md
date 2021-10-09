@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Levan, which is located in Utah, got its name from "navel" which is levan spelt backwards. It was named this because it is in the center of Utah. 
+- ⚡ **Fun fact:** A "gelotologist" is a person who studies laughter. 
