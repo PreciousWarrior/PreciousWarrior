@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, Americans move to a new place eleven times in their lifetime. 
+- ⚡ **Fun fact:** The fins of the Spiny Dogfish Shark are sometimes used as sandpaper for wood products. 
