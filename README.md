@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A "gelotologist" is a person who studies laughter. 
+- ⚡ **Fun fact:** In 1886, Coca-cola was first served at a pharmacy in Atlanta, Georgia for only five cents a glass. A pharmacist named John Pemberton created the formula for Coca-cola. 
