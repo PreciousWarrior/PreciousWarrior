@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are an estimated 2,500 collisions between birds and planes each year in the US. 
+- ⚡ **Fun fact:** In the U.S., over one million gallons of cosmetics, drinks, and lotions are sold that contain aloe in them per year. 
