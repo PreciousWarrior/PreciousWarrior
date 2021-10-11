@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first African-American to receive a Nobel Peace Prize was Ralph J. Bunche in 1950. 
+- ⚡ **Fun fact:** The longer white infants from low-income families are breast-fed, the less likely they will be overweight as young children, researchers said on Monday. 
