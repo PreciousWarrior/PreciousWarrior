@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The temperature of lightning bolts is sometimes hotter than the surface of the sun.. 
+- ⚡ **Fun fact:** A sheep, a duck and a rooster were the first passengers in a hot air balloon. 
