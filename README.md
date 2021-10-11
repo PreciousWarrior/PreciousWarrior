@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The longer white infants from low-income families are breast-fed, the less likely they will be overweight as young children, researchers said on Monday. 
+- ⚡ **Fun fact:** The temperature of lightning bolts is sometimes hotter than the surface of the sun.. 
