@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A sheep, a duck and a rooster were the first passengers in a hot air balloon. 
+- ⚡ **Fun fact:** There were 43,687 toilet related accidents in the United States in 1996. 
