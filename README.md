@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A B-25 bomber airplane crashed into the 79th floor of the Empire State Building on July 28, 1945. 
+- ⚡ **Fun fact:** French artist, Michel Vienkot, uses cow dung as paint when he creates his pictures. 
