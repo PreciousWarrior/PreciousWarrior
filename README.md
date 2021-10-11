@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** African Baobab tree's circumference can reach 180 feet. If the trunk is hollow, 20 people would be able to fit inside of it.. 
+- ⚡ **Fun fact:** The first African-American to receive a Nobel Peace Prize was Ralph J. Bunche in 1950. 
