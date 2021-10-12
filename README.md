@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the 19th century, it was common practice for a Japanese woman to dye their teeth black. They believed that this enhanced sex appeal and maintained healthier teeth. 
+- ⚡ **Fun fact:** Water that is safe to drink is referred to as POTABLE. 
