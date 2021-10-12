@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The two top toys in 1950 were Silly Putty which sold for $1, and Crayola crayons which sold for 50 cents. 
+- ⚡ **Fun fact:** In 1943, the July issue of "Transportation Magazine" had an article entitled "1943 Guide to Hiring Women.". 
