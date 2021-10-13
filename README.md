@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** After the U.S Civil War, about 33%-50% of all U.S. paper currency in circulation was counterfeit. 
+- ⚡ **Fun fact:** In a lifetime, the heart pumps about one million barrels of blood. 
