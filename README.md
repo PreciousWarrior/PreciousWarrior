@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Initially golf balls were made out of wood. After that they were made out of leather which was stuffed with feathers. 
+- ⚡ **Fun fact:** In 1905, the first pizzeria in the U.S. opened in New York City. 
