@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A headache and inflammatory pain can be reduced by eating 20 tart cherries. 
+- ⚡ **Fun fact:** People of Ancient China believed that swinging your arms could cure a headache. 
