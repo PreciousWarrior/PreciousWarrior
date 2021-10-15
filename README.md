@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Tycho Brahe, a 16th century astronomer, lost his nose in a duel with one of his students over a mathematical computation. He wore a silver replacement nose for the rest of his life. 
+- ⚡ **Fun fact:** The microwave oven was invented after a researcher walked by a radar tube and a chocolate bar melted in his pocket.. 
