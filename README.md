@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The famous Christmas song "Jingle Bells" was written for a Thanksgiving program in 1857 by James Pierpont. At the time, the song was called "The One-Horse Open Sleigh.". 
+- ⚡ **Fun fact:** Someone gets divorced every ten to thirteen seconds. 
