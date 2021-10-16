@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Approximately 55% of movies released are Rated R. 
+- ⚡ **Fun fact:** Franklin Pierce was the first U.S. President to have a Christmas tree in the White House. 
