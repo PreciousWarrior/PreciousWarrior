@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Three years after a person quits smoking, there chance of having a heart attack is the same as someone who has never smoked before. 
+- ⚡ **Fun fact:** A chicken with red earlobes will produce brown eggs, and a chicken with white earlobes will produce white eggs. 
