@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A volcano has enough power to shoot ash as high as 50 km into the atmosphere. 
+- ⚡ **Fun fact:** On average men spend 51 minutes a day grooming themselves. 
