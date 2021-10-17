@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A common custom in Spain is to eat one grape for each of the last 12 seconds of every year for good luck. 
+- ⚡ **Fun fact:** A dragonfly has a lifespan of for to seven weeks. 
