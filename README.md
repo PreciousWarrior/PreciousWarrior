@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** People in France own more pets in the world per person than any other country. 
+- ⚡ **Fun fact:** 7-Eleven was the first convenience store to have television advertising. The animated commercial ran in 1949 and had a singing rooster and owl. 
