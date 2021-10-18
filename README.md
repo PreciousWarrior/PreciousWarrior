@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Average age of top GM executives in 1994: 49.8 years. Average age ofthe Rolling Stones: 50.6.. 
+- ⚡ **Fun fact:** According to studies, an average roll of toilet paper lasts about five days in the bathroom. 
