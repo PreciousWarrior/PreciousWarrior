@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1982, a cactus in Phoenix, Arizona killed a man. David Grundman fired two shotgun blasts at a giant saguaro cactus that ended up falling on top of him. 
+- ⚡ **Fun fact:** Over 50% of the wedding in the U.S. occur in the afternoon. 
