@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Before the fur trade had started in Canada, it was estimated that there were over 6 million beavers. 
+- ⚡ **Fun fact:** Teenage suicide is the second cause of death in the state of Wisconsin. 
