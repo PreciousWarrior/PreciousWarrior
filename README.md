@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The largest ice cream sundae was made with 4,667 gallons of ice cream, was 12 feet high and had 7000 pounds of toppings on it. This was made in Anaheim, California in 1985. 
+- ⚡ **Fun fact:** On average, an American makes three pounds of garbage in a day. 
