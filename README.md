@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Coconuts kill more people in the world than sharks do. 
+- ⚡ **Fun fact:** Broccoli was first introduced into France during the royal marriage of Catherine de Medici to Henry II of France. 
