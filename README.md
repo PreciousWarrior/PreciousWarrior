@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Over 90% of diseases are caused or complicated by stress. 
+- ⚡ **Fun fact:** The fins of the Spiny Dogfish Shark are sometimes used as sandpaper for wood products. 
