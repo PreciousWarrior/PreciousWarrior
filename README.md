@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Michael Jordan makes more money from Nike annually than all of the Nike factory workers in Malaysia combined. 
+- ⚡ **Fun fact:** On average, an American makes three pounds of garbage in a day. 
