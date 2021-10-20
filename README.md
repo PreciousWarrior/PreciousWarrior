@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Twit is the name given for a pregnant goldfish. 
+- ⚡ **Fun fact:** The Taj Mahal, located in Agra, India, was actually built for use as a tomb by Mogul ruler Shah Jehan for his wife, Arjuman Banu Begum. 
