@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In ancient Egypt, Priests plucked EVERY hair from their bodies including their eyebrows and eyelashes. 
+- ⚡ **Fun fact:** Not all polar bears hibernate; only pregnant females polar bears do. 
