@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The reason why flamingos are pink is because they eat shrimp which have a red pigment. 
+- ⚡ **Fun fact:** Bo Jackson set a Monday Night Football record by rushing for 222 yards in one game against the Seattle Seahawks, including a 91-yard TD run. 
