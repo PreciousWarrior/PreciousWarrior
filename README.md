@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Ninety-nine percent of pumpkins sold in the United States are for the sole purpose of decoration. 
+- ⚡ **Fun fact:** Touching and stroking a plant will aid in it growing healthy. 
