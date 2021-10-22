@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Bo Jackson set a Monday Night Football record by rushing for 222 yards in one game against the Seattle Seahawks, including a 91-yard TD run. 
+- ⚡ **Fun fact:** One out of five people that eat ice cream binge on ice cream in the middle of the night. The person is usually between 18 - 24 years old. 
