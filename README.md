@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The idea of Christmas cards was invented by Englishman Henry Cole in 1843. 
+- ⚡ **Fun fact:** The General Lee cars used in the popular show The Dukes of Hazards were 1969 Dodge Chargers. 
