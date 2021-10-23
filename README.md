@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first drug to be sold in the form of a tablet is Aspirin. 
+- ⚡ **Fun fact:** After the Krakatoa volcano eruption in 1883 in Indonesia, many people reported that, because of the dust, the sunset appeared green and the moon blue. The moon was said to appear blue for almost two years.. 
