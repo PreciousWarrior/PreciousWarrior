@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Manicuring the nails has been done by people for more than 4,000 years. 
+- ⚡ **Fun fact:** The mating call of a male toadfish, who are underwater, is so loud that it can be heard by humans above water. 
