@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Canada is an Indian word meaning "village" or "settlement.". 
+- ⚡ **Fun fact:** During World War II, Kit Kat was unavailable due to milk shortages, so the chocolate bar was made without milk. 
