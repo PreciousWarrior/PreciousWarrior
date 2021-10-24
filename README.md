@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The smallest bird in the world is the bee hummingbird. The bird is 2.24 inches long. 
+- ⚡ **Fun fact:** Women blink nearly twice as much as men. 
