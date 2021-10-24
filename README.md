@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Desert snails can stay in their shell for up to three years. 
+- ⚡ **Fun fact:** Over 1,600 people in North America have been victims of trunk entrapment (being locked inside of a car trunk). 
