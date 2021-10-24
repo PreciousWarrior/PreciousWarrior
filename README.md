@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the spring of 1975, a baby in Detroit fell 14 stories and landed on Joseph Figlock, who was walking below. A few years later it happened again. Figlock and both babies survived. 
+- ⚡ **Fun fact:** Desert snails can stay in their shell for up to three years. 
