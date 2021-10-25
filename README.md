@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** It took approximately 2.5 million blocks to build the Pyramid of Giza, which is one of the Great Pyramids. 
+- ⚡ **Fun fact:** There are over 100 styles of BluBlocker sunglasses available on the market. 
