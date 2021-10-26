@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average American kid will eat approximately 1.500 peanut butter sandwiches by high school graduation. 
+- ⚡ **Fun fact:** The cardigan was originally made to be a military jacket made of knitted wool. 
