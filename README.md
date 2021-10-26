@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Passion fruits have a tranquilizing effect on the body. 
+- ⚡ **Fun fact:** The incidents of immune system diseases has increased over 200% in the last five years. 
