@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** When the divorce rate goes up in the United States, toy makers report that the sale of toys also rise. 
+- ⚡ **Fun fact:** Due to eating habits in the USA, one in three children born in the year 2000 have a chance of getting type II diabetes. 
