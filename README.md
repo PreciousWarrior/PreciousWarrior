@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The book "Little Red Riding Hood" was banned in 1990 by two school districts in California. They did this because in the book there was a picture of a basket that had a bottle of wine in it. 
+- ⚡ **Fun fact:** The word Lethologica describes the state of not remembering the word you want to say. 
