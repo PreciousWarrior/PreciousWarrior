@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Colonel Sanders original white suit was auctioned off for $80,000 in February 2002. 
+- ⚡ **Fun fact:** One of the most dangerous insect in the world is the common housefly. They carry and transmit more diseases than any other animal in the world. 
