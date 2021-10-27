@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Feb 1865 and Feb 1999 are the only months in recorded history not to have a full moon. 
+- ⚡ **Fun fact:** The male platypus has poisonous spurs on its legs. 
