@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The platypus uses its bill to find animals that it feeds on. Its bill can sense the tiny electric fields that their preys emit. 
+- ⚡ **Fun fact:** Cow is a Japanese brand of shaving foam. 
