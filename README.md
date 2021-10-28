@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The best time for a person to buy shoes is in the afternoon. This is because the foot tends to swell a bit around this time. 
+- ⚡ **Fun fact:** Only one out of every three people wash their hands when leaving a public bathroom. 
