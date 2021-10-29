@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There was an army general during the Liberia Civil War who used to lead his army into battle naked. His nickname was "General Butt Naked." Joshua Milton Blahyi (his real name) is now an evangelical preacher in Monrovia. 
+- ⚡ **Fun fact:** Approximately 200 pets are buried in a pet cemetery out of the thousands of pets that die each day. 
