@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The revolving door was invented in 1888, by Theophilus Van Kannel.. 
+- ⚡ **Fun fact:** Three consecutive strikes in bowling is called a turkey. 
