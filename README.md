@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Approximately 200 pets are buried in a pet cemetery out of the thousands of pets that die each day. 
+- ⚡ **Fun fact:** Every year, 100 million sharks are killed by people. 
