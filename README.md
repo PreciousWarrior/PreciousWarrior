@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In L.A., U.S.A., a man may legally beat his wife with a leather strap, as long as it is less than 2 inches wide. 
+- ⚡ **Fun fact:** The world record for rocking non-stop in a rocking chair is 480 hours held by Dennis Easterling, of Atlanta, Georgia. 
