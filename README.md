@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The YKK on the zipper of your Levis stands for Yoshida Kogyo Kabushibibaisha, the worlds largest zipper manufacturer. 
+- ⚡ **Fun fact:** If you have three quarters, four dimes, and four pennies, you have$1.19. You also have the largest amount of money in coins without beingable tomake change for a dollar.. 
