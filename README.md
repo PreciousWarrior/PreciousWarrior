@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The American Airlines Sports Center, in Dallas, has most toilets per capita than any other sports and entertainment venue in the USA. 
+- ⚡ **Fun fact:** The YKK on the zipper of your Levis stands for Yoshida Kogyo Kabushibibaisha, the worlds largest zipper manufacturer. 
