@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 2000, there were 1,579,566 drug arrests in the United States. Of those, close to half were for marijuana. 
+- ⚡ **Fun fact:** A Hungarian named Ladislo Biro invented the first ballpoint pen in 1938.. 
