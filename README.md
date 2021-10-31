@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The word "nerd" was first coined by Dr. Suess in the book "If I Ran to the Zoo.". 
+- ⚡ **Fun fact:** In 1949 UNICEF produced the first charity Christmas card. The picture shown on the card was painted by a seven year old girl. 
