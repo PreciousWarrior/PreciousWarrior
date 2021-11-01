@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In ancient Egypt, the only person who was allowed to wear cotton was the High Priest. 
+- ⚡ **Fun fact:** The only English place that has a name that ends with an exclamation mark is "Westward Ho!". 
