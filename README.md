@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are approximately fifty Bibles sold each minute across the world. 
+- ⚡ **Fun fact:** Sanskrit is considered as the mother of all higher languages. This is because it is the most precise, and therefore suitable language for computer software. 
