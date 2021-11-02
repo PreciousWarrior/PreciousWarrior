@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A rose imprint that was fossilized in a slate was discovered in Florisant, Colorado, which is said to be thirty-five million years old. 
+- ⚡ **Fun fact:** JELL-O was declared The "Official State Snack" of Utah in January 2001. 
