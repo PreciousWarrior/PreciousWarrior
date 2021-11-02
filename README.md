@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A Hungarian named Ladislo Biro invented the first ballpoint pen in 1938.. 
+- ⚡ **Fun fact:** The three wealthiest families in the world have more assets than the combined wealth of the forty-eight poorest nations. 
