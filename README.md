@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The fur of the binturong, also known as the "Asian Bear Cat," smells like popcorn. The scent is believed to come from a gland located near the tail. 
+- ⚡ **Fun fact:** There are an average of 178 sesame seeds on a McDonald's Big Mac bun.. 
