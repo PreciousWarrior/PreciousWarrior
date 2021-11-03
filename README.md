@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the 1940s, the FCC assigned television's Channel 1 to mobile Services(two-way radios in taxicabs, for instance) but did not re-number theotherchannel assignments. That is why your TV set has channels 2 and up, butnochannel 1.. 
+- ⚡ **Fun fact:** Coconuts kill more people in the world than sharks do. 
