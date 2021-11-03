@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Ray Kroc bought McDonalds for $2.7 million in 1961 from the McDonald brothers. 
+- ⚡ **Fun fact:** Approximately 200 pets are buried in a pet cemetery out of the thousands of pets that die each day. 
