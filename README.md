@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** More than half the time spent in United States courts is cases that involve automobiles. 
+- ⚡ **Fun fact:** It takes 3,000 cows to supply the NFL with enough leather for a year'ssupply of footballs.. 
