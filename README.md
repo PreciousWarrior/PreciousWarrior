@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There was a 19th century Native American tribal chief who went under the name, "Not Able to Fornicate.". 
+- ⚡ **Fun fact:** More than 90% of shark attack victims survive. 
