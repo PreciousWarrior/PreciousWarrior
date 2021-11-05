@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Fine-grained volcanic ash can be found as an ingredient in some toothpaste. 
+- ⚡ **Fun fact:** The Sears Tower located in Chicago, Illinois is made up 76,000 tons of steel. 
