@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The smallest bone in the human body is the stapes bone which is located in the ear. 
+- ⚡ **Fun fact:** The citrus soda "7 UP" was created in 1929. The original name of the popular drink was "Bib-Label Lithiated Lemon-Lime Soda", but it got changed to "7 UP.". 
