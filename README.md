@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Watermelon is considered a good gift to give a host in Japan and China. 
+- ⚡ **Fun fact:** Stannous fluoride, which is the cavity fighter found in toothpaste is made from recycled tin. 
