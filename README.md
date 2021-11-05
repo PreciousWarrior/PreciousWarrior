@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first fashion house to be set up was in 1858 by Charles Worth. He opened his store in Paris with the idea of having pre-made gowns presented on models to his customers. 
+- ⚡ **Fun fact:** The most popular chocolate bar in the United Kingdom for the last 15 years has been Kit Kat. 
