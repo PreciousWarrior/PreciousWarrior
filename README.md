@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Lighthouse keepers were nicknamed "wickies" because they tended the lamps wick. 
+- ⚡ **Fun fact:** In the game of Monopoly, the most landed on properties are B- ⚡ **Fun fact:** Lighthouse keepers were nicknamed "wickies" because they tended the lamps wick. O Railroad, Illinois Avenue, and "Go.". 
