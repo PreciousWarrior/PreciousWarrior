@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Lemon juice can aid in reducing the swelling caused by insect bites. 
+- ⚡ **Fun fact:** Some people start to sneeze if they are exposed to sunlight or have a light shined into their eye. 
