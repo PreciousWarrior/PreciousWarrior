@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Mangos are valued for their reputation as an aphrodisiac in countries such as Guatemala and India. 
+- ⚡ **Fun fact:** Krispy Kreme make five million doughnut a day. 
