@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first TV commercial advertisement was by the Bulova Watch company on July 1, 1941. The watch company paid $9.00 for an announcement that was 10 seconds long. 
+- ⚡ **Fun fact:** More than $1 billion is spent each year on neck ties in the United States. 
