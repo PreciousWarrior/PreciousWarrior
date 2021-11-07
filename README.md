@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** False Bay, on the southern tip of Africa and close to Cape Town, South Africa, is a breeding ground for great white sharks, which feed off the thousands of seals in the bay. However, it is the only area in the known world in which these sharks are known to breach - they attack the seals by coming up vertically, often leaping clear of the water with their prey in their mouths. 
+- ⚡ **Fun fact:** The first TV commercial advertisement was by the Bulova Watch company on July 1, 1941. The watch company paid $9.00 for an announcement that was 10 seconds long. 
