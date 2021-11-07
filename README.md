@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Each king in a deck of playing cards represents a great king fromhistory. Spades - King David; Clubs - Alexander the Great; Hearts -Charlemagne;and Diamonds - Julius Caesar.. 
+- ⚡ **Fun fact:** There are mirrors on the moon. Astronauts left them so that laser beams could be bounced off of them from Earth. These beams help give us the distance to the moon give or take a few metres.. 
