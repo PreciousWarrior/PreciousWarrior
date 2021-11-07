@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** No NFL team which plays its home games in a domed stadium has ever won a Superbowl. 
+- ⚡ **Fun fact:** The largest spider ever was the Megarachne which had a diameter of 50 cm. The fossil was found in Argentina. 
