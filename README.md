@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Ticks can be as small as a grain of rice and grow to be as big as a marble. 
+- ⚡ **Fun fact:** The most common pear world-wide is the Bartlett. It is bell-shaped, sweet and soft with a light green colour. 
