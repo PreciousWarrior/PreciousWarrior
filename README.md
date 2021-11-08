@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The #1 peanut producing state is Georgia. 
+- ⚡ **Fun fact:** According to psychologists, the shoe and the foot are the most common sources of sexual fetishism in Western society. 
