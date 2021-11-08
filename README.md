@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Montreal has an underground city, which has over 2,000 shops and 26 kilometres of walkways. This is the largest underground network for any city. 
+- ⚡ **Fun fact:** The first music video ever played on MTV Europe was by Dire Straits, "Money For Nothing.". 
