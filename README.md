@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Moscow was founded in 1147 by Yury Dolgoruky. 
+- ⚡ **Fun fact:** Uranus? winter and summer seasons last the equivalent of 21 Earth years. 
