@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The country of Andorra has a zero percent unemployment rate. 
+- ⚡ **Fun fact:** The New York Yankees have appeared in the World Series a league leading 38 times and won 26 titles. 
