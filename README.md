@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Apples are part of the rose family. 
+- ⚡ **Fun fact:** In 1992, when EuroDisney first opened in France, the public beat some of the park characters because at the time most people had been against the park being built. 
