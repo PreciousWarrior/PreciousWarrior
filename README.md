@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The oldest documented footwear found was a 8,000 year-old sandal found in a cave located in Missouri, USA. 
+- ⚡ **Fun fact:** The first president to have a picture taken was John Quincy Adams. 
