@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** One average, men spend 60 hours a year shaving. 
+- ⚡ **Fun fact:** If you were standing on Mercury, the Sun would appear 2.5 times larger than it appears from Earth. 
