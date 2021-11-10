@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The dot that appears over the letter "i" is called a tittle. 
+- ⚡ **Fun fact:** The most popular American city for Kool-Aid sales is St. Louis, Missouri. 
