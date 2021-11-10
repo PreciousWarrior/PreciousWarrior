@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** St. Patrick never really drove out any snakes from Ireland. This story was an analogy of how he drove paganism out of Ireland. 
+- ⚡ **Fun fact:** In China, there is a species of yam that is used to make a dye. 
