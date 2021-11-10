@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Incas used to create pots in the shape of peanuts that were highly prized. 
+- ⚡ **Fun fact:** In WWII, when allied armies reached the Rhine River the first thing men did was pee in it. This was pretty universal from the lowest private to Winston Churchill (who made a big show of it). Gen. Patton had himself photographed in the act. 
