@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Pretzel snacks have been around for over 1300 years. A European monk invented the snack using used leftover bread dough. 
+- ⚡ **Fun fact:** According to the American Institute of Stress, job stress approximately costs the U.S. industry over $300 billion dollars per year. 
