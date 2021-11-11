@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Baskin Robbins once made ketchup ice cream. This was the only vegetable flavoured ice cream produced. However, they discontinued it since they thought it would not sell well. 
+- ⚡ **Fun fact:** The first time there was an instance where they had a separate toilet for women and men was in 1739 at a ball in Paris. 
