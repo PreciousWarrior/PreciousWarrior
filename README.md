@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Some octopuses have been known to eat their arms off when they are exposed to stressful situations. 
+- ⚡ **Fun fact:** Bananas were discovered by Alexander the Great in 327 B.C. when he conquered India. 
