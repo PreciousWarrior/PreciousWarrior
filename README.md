@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** American Airlines saved $40,000 in 1987 by eliminating one olive from each salad served in first-class. 
+- ⚡ **Fun fact:** The first words that Thomas A. Edison spoke into the phonograph were, "Mary had a little lamb.". 
