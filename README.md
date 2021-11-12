@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The watch was invented by Peter Henlein of Nuremberg in 1510.. 
+- ⚡ **Fun fact:** Ivory bar soap floating was a mistake. They had been mixing the soap formula causing excess air bubbles that made it float. Customers wrote and told how much they loved that it floated, and it has floated ever since. 
