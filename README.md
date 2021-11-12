@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There was a molasses flood in Boston on January 15, 1919 that killed 21 people and injured 150 people. 
+- ⚡ **Fun fact:** The longest Monopoly game ever played was 1,680 hours long, which is seventy straight days. 
