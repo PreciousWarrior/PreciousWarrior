@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Approximately 87% of dog owners say that when they watch T.V. their dog curls up beside them or at their feet. 
+- ⚡ **Fun fact:** The only lizard that has a voice is the Gecko. 
