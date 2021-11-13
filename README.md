@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** An elephant can live up to the age of seventy, or in some cases even more. 
+- ⚡ **Fun fact:** Ninety-five percent of tropical fish sold in North America originate from Florida. 
