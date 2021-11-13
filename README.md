@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Scientists with high-speed cameras have discovered that rain drops are not tear shaped but rather look like hamburger buns.. 
+- ⚡ **Fun fact:** The list of ingredients that make up lipstick include fish scales. 
