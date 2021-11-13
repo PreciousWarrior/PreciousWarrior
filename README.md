@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A person uses approximately fifty-seven sheets of toilet paper each day. 
+- ⚡ **Fun fact:** Dalmatian puppies do not have any spots on them when they are born. They actually develop them as they get older. 
