@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Toronto was the first city in the world with a computerized traffic signal system. 
+- ⚡ **Fun fact:** Studies have shown that by putting on slow background music it can make a person eat food at a slower rate. 
