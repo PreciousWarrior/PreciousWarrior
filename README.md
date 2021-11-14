@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are over one hundred billion galaxies with each galaxy having billions of stars. 
+- ⚡ **Fun fact:** On April 4, 1974, John Massis of Belgium pulled two New York Long Island railroad passenger cars totaling 80 tons with a thick rope, with a small bit attached, using only his teeth. 
