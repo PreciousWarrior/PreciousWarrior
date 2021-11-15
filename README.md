@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The cross bow was invented by the Chinese and records of its usage goes back to as far as the Three Kingdom Period (220 a.d.-280 a.d.).. 
+- ⚡ **Fun fact:** The adult human body requires about 88 pounds of oxygen daily. 
