@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Before 1859, baseball umpires were seated in padded chairs behind home plate. 
+- ⚡ **Fun fact:** Romans used to believe that walnuts could cure head ailments during the Renaissance, since their shape was similar to that of a brain. 
