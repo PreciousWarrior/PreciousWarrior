@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** 7-Eleven was the first convenience store to have television advertising. The animated commercial ran in 1949 and had a singing rooster and owl. 
+- ⚡ **Fun fact:** The Bank of America was originally called the Bank of Italy until the founder, Amedeo Giannini, changed the name in 1930. 
