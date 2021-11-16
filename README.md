@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The fastest speed a raindrop had reached when falling is seven miles per hour.. 
+- ⚡ **Fun fact:** The size of a red blood cell is 708 microns. This is equivalent to one millionth of a meter. 
