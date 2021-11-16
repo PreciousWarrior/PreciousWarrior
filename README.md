@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** By partially filling saucers with vinegar and distributing the saucers around a room, you can eliminate odors. 
+- ⚡ **Fun fact:** The largest known hailstone to have fallen was in Germany in 1925, which weighed close to four and a half pounds.. 
