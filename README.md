@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** At one time the group "Grateful Dead" were called "The Warlocks.". 
+- ⚡ **Fun fact:** In a five card poker game there are 2,598,960 possible hands. 
