@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The right lung of a human is larger than the left one. This is because of the space and placement of the heart. 
+- ⚡ **Fun fact:** Popeye is 34 years old, weighs 158 lbs, and is 5 feet 6 inches tall. 
