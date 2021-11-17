@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Buckingham Palace has over six hundred rooms. 
+- ⚡ **Fun fact:** French astronomer Adrien Auzout had once considered building a telescope that was 1,000 feet long in the 1600s. He thought the magnification would be so great, he would see animals on the moon. 
