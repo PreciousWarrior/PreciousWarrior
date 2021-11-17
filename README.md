@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Elmer Smith was the first player to hit a grand slam in a World Series. 
+- ⚡ **Fun fact:** White-Out was invented by Bette Nesmith Graham, who is the mother of Michael Nesmith from the "The Monkees.". 
