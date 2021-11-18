@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Bamboo plants can grow up to 36 inches in a day.. 
+- ⚡ **Fun fact:** From 1967-1976, the town of Tororo located in Uganda had thunder 251 out of the 365 days in a year for those years.. 
