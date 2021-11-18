@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** It was during World War II that clothes with elastic waists were introduced. This is because the metal used in zippers was badly needed for the war. 
+- ⚡ **Fun fact:** Most dust particles in your house are made from dead skin. 
