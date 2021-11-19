@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Coca-cola used to use the slogan "Good to the last drop," in 1908. This slogan was later used by Maxwell House. 
+- ⚡ **Fun fact:** The iron disulfide (Pyrite) is considered "fool's gold" because it looks very similar to gold.. 
