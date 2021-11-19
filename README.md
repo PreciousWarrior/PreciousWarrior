@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There was a book written fourteen years before the sinking of the Titanic happened titled "Futility" by Morgan Robertson. This book was remarkably similar to the tragedy that happened to the Titanic in 1912. 
+- ⚡ **Fun fact:** The formula for Coca-cola has never been patented. 
