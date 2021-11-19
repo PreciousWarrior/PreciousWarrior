@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average person is about a quarter of an inch taller at night. 
+- ⚡ **Fun fact:** The name "Grey Poupon" used for mustard comes from two people: Maurice Grey and Auguste Poupon. Grey was the inventor of a machine that mass produced fine textured mustard, and Poupon was an already established maker of mustard. In 1886 the Grey-Poupon firm was formed. 
