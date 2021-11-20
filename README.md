@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Indonesia consists only of islands - 13,667 total. 
+- ⚡ **Fun fact:** From all the oxygen that a human breathes, twenty percent goes to the brain. 
