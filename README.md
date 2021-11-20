@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are approximately one hundred million people in the United States that have a chronic illness. 
+- ⚡ **Fun fact:** The first American celebration of St. Patricks Day was at Boston in 1737. 
