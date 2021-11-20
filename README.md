@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Black pepper is the most popular spice in the world. 
+- ⚡ **Fun fact:** Less than 1% of the women in the world will ever be able to wear a diamond that is the size of a carat or more. 
