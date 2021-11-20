@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** James Buchanan was the only unmarried president of the United States. 
+- ⚡ **Fun fact:** The highest toll paid by a ship to cross the Panama Canal was by the Crown Princess on May 2, 1993 in the amount of $141,349.97 U.S. funds. 
