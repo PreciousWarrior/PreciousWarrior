@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** More people die from eating sharks then from being eaten by them. This is due to a poison in shark meat. 
+- ⚡ **Fun fact:** Panthers are known as black leopards, as they are the same species of leopard. If looked at closely, black spots can be seen on a panther. 
