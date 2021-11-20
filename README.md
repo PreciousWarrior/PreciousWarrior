@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The word "umbrella" is derived from the Latin root word "umbra", which means shade or shadow. 
+- ⚡ **Fun fact:** More people die from eating sharks then from being eaten by them. This is due to a poison in shark meat. 
