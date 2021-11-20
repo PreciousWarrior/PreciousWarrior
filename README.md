@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Acorns were used as a coffee substitute during the American Civil War. 
+- ⚡ **Fun fact:** Halifax, Nova Scotia, Canada has the largest bar per capita than anywhere else in the world. 
