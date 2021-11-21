@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The unique characteristics of Barbie dolls in Japan are that they have their lips closed with no teeth showing. 
+- ⚡ **Fun fact:** On September 7, 1997, the first flight of the F-22a occurred.. 
