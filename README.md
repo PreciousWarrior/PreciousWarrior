@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A diet high in fat is said to impede memory. 
+- ⚡ **Fun fact:** In Japan, tipping at restaurants is not a norm. However, some restaurants might add a 5 - 10 % service charge to the bill. 
