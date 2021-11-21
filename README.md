@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Bill Gates house was partially designed using a Macintosh computer. new. 
+- ⚡ **Fun fact:** To tell if a egg is fully cooked or raw, just spin it. If the egg wobbles then it is still raw, and if it easily spins it is fully cooked. 
