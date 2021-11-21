@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Each day 400 gallons of recycled blood are pumped through the kidneys. 
+- ⚡ **Fun fact:** When explorers first arrived in Venezuela, they were reminded of Venice. They named the country "Little Venice", which translated into Spanish is Venezuela. 
