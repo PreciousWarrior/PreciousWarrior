@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Mummy powder was once thought to be a cure for all remedies. English men used to carry the powder with them in a tiny bag wherever they went. 
+- ⚡ **Fun fact:** In Kentucky, it is illegal to carry ice cream in your back pocket. 
