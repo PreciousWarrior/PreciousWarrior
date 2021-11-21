@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There were no red colored M- ⚡ **Fun fact:** On average, each American consumes approximately two hundred and sixty pounds of meat in a year. Ms from 1976 to 1987. 
+- ⚡ **Fun fact:** The unique characteristics of Barbie dolls in Japan are that they have their lips closed with no teeth showing. 
