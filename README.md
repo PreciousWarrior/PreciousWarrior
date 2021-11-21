@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the summer of 1858, the smell of the sewage in the Thames River in London was so bad that the Members of Parliament had to leave from the chamber of the House of Commons. This was a result of two million people dumping all their sewage into the river. 
+- ⚡ **Fun fact:** Most cows give more milk when they listen to music. 
