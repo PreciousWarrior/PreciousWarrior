@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Oral-B were the first toothbrushes to go to the moon when they were aboard the Apollo 11 mission. 
+- ⚡ **Fun fact:** More than 260,000 people have been killed by volcanic activity since 1700 AD.. 
