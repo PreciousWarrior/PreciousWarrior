@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Due to eating habits in the USA, one in three children born in the year 2000 have a chance of getting type II diabetes. 
+- ⚡ **Fun fact:** The reason why hair turns gray as we age is because the pigment cells in the hair follicle start to die, which is responsible for producing "melanin" which gives the hair colour. 
