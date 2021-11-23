@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In America, the most common mental illness is Anxiety Disorders. 
+- ⚡ **Fun fact:** The largest hamburger cooked in the world weighed in at 6,040 pounds. 
