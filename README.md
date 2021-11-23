@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The electric chair was invented by a dentist. 
+- ⚡ **Fun fact:** The first person to die in the electric chair was William Kemmler, an ax murderer from New York on August 6, 1890. 
