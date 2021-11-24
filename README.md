@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Honey is used sometimes for antifreeze mixtures and in the center of golf balls. 
+- ⚡ **Fun fact:** Studies indicate that weightlifters working out in blue gyms can handle heavier weights. 
