@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The temperature of milk when it leaves the body of a cow is 101 degrees Fahrenheit. The milk is then quickly chilled and stored at a temperature of 40 degrees Fahrenheit. 
+- ⚡ **Fun fact:** The Basenji dog is the only dog that is not able to bark. 
