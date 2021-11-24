@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The triangular shape that Toblerone chocolates are packaged in, is protected by law. 
+- ⚡ **Fun fact:** The first automobile racetrack in America was the 'Indianapolis Motor Speedway,' which had 3 million cobblestones.. 
