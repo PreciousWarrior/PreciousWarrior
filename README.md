@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The longest human beard on record is 17.5 feet, held by Hans N. Langseth who was born in Norway in 1846. 
+- ⚡ **Fun fact:** Pineapples were first introduced into Europe by Christopher Columbus. 
