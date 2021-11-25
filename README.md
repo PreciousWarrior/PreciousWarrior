@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Canadians Scott Abbott and Chris Haney invented Trivial Pursuit. They were planning on playing Scrabble and realized that some of the pieces were missing so they came up with the idea of making their own game; Trivial Pursuit. 
+- ⚡ **Fun fact:** A Canadian, Troy Hurtubise, spent $100,000 and almost went bankrupt building a RoboCop style suit so that he could withstand a bear attack. 
