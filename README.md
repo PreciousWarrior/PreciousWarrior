@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Better wine can be produced by the soil being of poor quality. This is because the vines have to "work" harder. 
+- ⚡ **Fun fact:** The highest point in Pennsylvania is lower than the lowest point in Colorado. 
