@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Studies have shown that the scent of Rosemary can help in better mental performance and make individuals feel more alert. 
+- ⚡ **Fun fact:** The name Reebok was named after the African Gazelle. 
