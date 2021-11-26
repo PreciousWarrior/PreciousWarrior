@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The abbreviation Xmas for the word Christmas is of Greek origin. Since the word for Christ in the Greek language is Xristos, which starts with the letter "X," they started putting the X in place of Christ and came up with the short form for the word Christmas. 
+- ⚡ **Fun fact:** The concept of Boxing Day, which is on December 26th, was to give boxes of food and clothing to the poor. It is now viewed in some countries as a time to get merchandise from stores at reduced prices. 
