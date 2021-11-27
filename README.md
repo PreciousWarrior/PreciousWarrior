@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There is enough water in American swimming pools to cover the whole city of San Francisco seven feet deep. 
+- ⚡ **Fun fact:** The hottest chili in the world is the Tezpur chili pepper. 
