@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Certain female species of spiders such as the Australian crab spider, sacrifice their bodies as a food source for their offspring. 
+- ⚡ **Fun fact:** Coconuts kill more people in the world than sharks do. 
