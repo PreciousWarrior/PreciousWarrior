@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A mole can dig a tunnel three hundred feet long in a single night. 
+- ⚡ **Fun fact:** Coupons were introduced in 1894 when Asa Candler bought the Coca-Cola formula for $2,300 and gave people coupons that he had written out to receive a free glass of coke. 
