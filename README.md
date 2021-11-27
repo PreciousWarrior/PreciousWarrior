@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Electronic companies sell five times as many big-screen TVs during Super Bowl Week. 
+- ⚡ **Fun fact:** The name Hasbro was invented by the name of the founders: HASsenfeld BROthers. 
