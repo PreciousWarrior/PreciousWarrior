@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The name Hasbro was invented by the name of the founders: HASsenfeld BROthers. 
+- ⚡ **Fun fact:** Surveys indicate that the number one reason people play BINGO is for leisure. 
