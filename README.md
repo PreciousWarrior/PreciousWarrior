@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Close to 80% of people who watch the Super Bowl on television, only do so to view the commercials. 
+- ⚡ **Fun fact:** 98% of brown bears in the United States are in Alaska. 
