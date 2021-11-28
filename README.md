@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A common drink for Tibetans is Butter Tea which is made out of butter, salt, and brick tea. 
+- ⚡ **Fun fact:** In 1945, the first "floating ice cream parlor" was built for sailors in the western Pacific. This "floating ice cream parlour" could produce ten gallons of ice cream every seven seconds. 
