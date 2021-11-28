@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Each year there are approximately 20 billion coconuts produced worldwide. 
+- ⚡ **Fun fact:** In some parts of the Atacama Desert it has never rained. 
