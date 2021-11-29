@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1989, twenty-three people were hired in Jacksonville Florida just to flush toilets so the pipes would not freeze. 
+- ⚡ **Fun fact:** The term "The Big Apple" was coined by touring jazz musicians of the 1930s who used the slang expression "apple" for any town or city. Therefore, to play New York City is to play the big time - The Big Apple. 
