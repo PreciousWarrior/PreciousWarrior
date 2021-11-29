@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Goat meat contains up to 45 percent less saturated fat than chicken meat. 
+- ⚡ **Fun fact:** On average, a beaver can cut down two hundred trees a year.. 
