@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The concept of Boxing Day, which is on December 26th, was to give boxes of food and clothing to the poor. It is now viewed in some countries as a time to get merchandise from stores at reduced prices. 
+- ⚡ **Fun fact:** One acre of wheat can produce enough bread to feed a family of four people for about ten years. 
