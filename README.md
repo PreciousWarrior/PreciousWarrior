@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Some brands of toothpaste contain glycerin or glycerol, which is also an ingredient in antifreeze. 
+- ⚡ **Fun fact:** There is a muppet named Kami that appears on the South African version of the T.V. show "Sesame Street" that is HIV-positive. 
