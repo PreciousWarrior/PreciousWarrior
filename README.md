@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Canadians eat more Kraft Dinner (Macaroni and Cheese) per capita than any other country in the world. 
+- ⚡ **Fun fact:** When blue whales are first born, they gain as much as 200 pounds a day while they are calves. 
