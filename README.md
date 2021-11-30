@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Wild Flamingos are pink because they consume vast quantities of algae and brine shrimp. 
+- ⚡ **Fun fact:** Polar bear livers contain so much Vitamin A that it can be fatal if eaten by a human. 
