@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** All the Krispy Kreme donut stores collectively could make a doughnut stack as high as the Empire State Building in only 2 minutes. 
+- ⚡ **Fun fact:** The Toronto Maple Leafs used to be called the Toronto Arenas, then the St. Patricks and finally the Maple Leafs. 
