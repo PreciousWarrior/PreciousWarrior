@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Polar bear livers contain so much Vitamin A that it can be fatal if eaten by a human. 
+- ⚡ **Fun fact:** In 1972, a gorilla by the name of "Koko" was taught ASL (American Sign Language) for the deaf. By the year 2000, the gorilla could understand approximately 2,000 English words. 
