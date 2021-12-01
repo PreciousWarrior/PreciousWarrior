@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Johannesburg, the average car will be involved in an accident once every four years.. 
+- ⚡ **Fun fact:** In Los Angeles, there are fewer people than there are automobiles. 
