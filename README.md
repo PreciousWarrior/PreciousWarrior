@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The largest type of penguin is the Emperor Penguin which can stand to be almost 3.5 feet tall and weigh more than 90 pounds. 
+- ⚡ **Fun fact:** The first product that the toy company Mattel came out with was picture frames. 
