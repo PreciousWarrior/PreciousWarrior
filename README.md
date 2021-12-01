@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In most advertisements, including newspapers, the time displayed on a watch is 10:10. 
+- ⚡ **Fun fact:** Smartest dogs: 1) Scottish border collie; 2) Poodle; 3) Golden retriever. 
