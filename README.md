@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Some Chinese chopsticks contain gold as on of their materials. 
+- ⚡ **Fun fact:** In Japan, by the time man reaches the age of 60, he is commemorated with a special ceremony. This ceremony features the man wearing a red kimono, which denotes that he no longer has the responsibilities of being a mature adult. 
