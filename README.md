@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Parma ham is only Parma ham if it is made in the Parma region of Italy. The British chain supermarket Asda, made and packaged its own "Parma ham" and was successfully sued by the real Parma ham people (Parma Ham Trade Association). 
+- ⚡ **Fun fact:** While still in college, Bill Gates and Paul Allen once built a special purpose machine called "Traff-O-Data." It was a machine that would analyze information gathered by traffic monitors. They never found any buyers.. 
