@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The national anthem of Greece has 158 verses. 
+- ⚡ **Fun fact:** Actress Meryl Streep holds the record for the most Oscar nominated actress, with a record of 13 nominations. 
