@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Gorilla gorilla gorilla is the scientific name for the animal gorilla. 
+- ⚡ **Fun fact:** Actress Michelle Pfeiffer was the first choice to play Clarice Starling in the movie "Silence of the Lambs." She turned down the role because she found it too scary. 
