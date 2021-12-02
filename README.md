@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1916, Charlie Chaplin was making $10,000 a week, making him the highest paid actor of his time. 
+- ⚡ **Fun fact:** For every human in the world there are one million ants. 
