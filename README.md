@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The king of hearts is the only king without a mustache. 
+- ⚡ **Fun fact:** The most expensive animated movie is "Prince of Egypt", which cost $70 million to make. 
