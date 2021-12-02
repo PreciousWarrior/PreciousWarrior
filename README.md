@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Texas is the only state that is allowed to fly its flag at the same height as the U.S. flag. 
+- ⚡ **Fun fact:** There are more plastic flamingos in America than real ones. 
