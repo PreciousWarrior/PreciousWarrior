@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There were no red colored M- ⚡ **Fun fact:** A chicken loses its feathers when it becomes stressed. Ms from 1976 to 1987. 
+- ⚡ **Fun fact:** Lake Baikal, in Siberia, is the deepest lake in the world. 
