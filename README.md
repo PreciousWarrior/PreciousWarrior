@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** If the population of China walked past you in single file, the line would never end because of the rate of reproduction. 
+- ⚡ **Fun fact:** Sharks are capable of going at least 6 weeks without eating; the record observed in an aquarium is 15 months by a species of shark known as the swell sharks). 
