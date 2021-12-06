@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Female alligators lay about 40 eggs that hatch in 60 - 70 days. 
+- ⚡ **Fun fact:** Baseball games between college teams have been played since the Civil War. 
