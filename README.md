@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Neptune was the first planet in our solar system to be discovered by mathematics. 
+- ⚡ **Fun fact:** The silk that is produced by spiders is stronger than steel. 
