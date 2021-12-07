@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1948 and 1950 the oldest ears of popping corn were discovered. They were located in the Bat Cave of west central New Mexico. They ranged in size from smaller than a penny to approximately two inches, and were about 4,000 years old. 
+- ⚡ **Fun fact:** Neptune was the first planet in our solar system to be discovered by mathematics. 
