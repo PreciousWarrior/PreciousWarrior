@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The game rugby was originated at Rugby school located in England in 1823. This happened when William Webb Ellis, while playing soccer, picked the ball up in his hands and started running with it. 
+- ⚡ **Fun fact:** In Colorado, there are about 83,000 dairy cows. 
