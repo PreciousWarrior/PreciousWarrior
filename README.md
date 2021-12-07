@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On May 9, 1999 approximately 600,000 gallons of whiskey flowed into the Kentucky River during a fire at Wild Turkey Distillery in Lawrenceburg. 
+- ⚡ **Fun fact:** The name Aspirin was invented from "A" in acetyl chloride. The "spir" comes from spiraea ulmaria which is the plant that they got the salicylic acid from, and the "in" was used because back then it was popular to end the name of medicines with "in.". 
