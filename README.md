@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Elizabeth Taylor has appeared on the cover of Life magazine more than anyone else. 
+- ⚡ **Fun fact:** The name Santa Claus came from Saint Nicholas who was a bishop in the town of Myra, and was known to be very nice to children. 
