@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are over one hundred billion galaxies with each galaxy having billions of stars. 
+- ⚡ **Fun fact:** The spider used in the 2002 movie Spider-Man was a Steatoda spider, not a black widow. The spider was given anaesthesia, and was then painted blue and red. 
