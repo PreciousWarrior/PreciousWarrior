@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A rocket-like device can be traced back to Ancient Greece when a flying steam-powered pigeon was built out of wood.. 
+- ⚡ **Fun fact:** There are more than 1,000 chemicals in a cup of coffee. Of these, only 26 have been tested, and half-caused cancer in rats. 
