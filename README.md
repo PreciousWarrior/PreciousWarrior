@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Hershey's Kisses are called that because the machine that makes themlooks like it's kissing the conveyor belt.. 
+- ⚡ **Fun fact:** The difference between horns and antlers is that horns never stop growing and antlers shed and grow every year. 
