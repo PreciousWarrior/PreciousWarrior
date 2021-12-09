@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Of all the words Dr. Seuss made up in his storybooks, only one has stuck in the English vocabulary: grinch, which is refers to a killjoy -- and it took more than 20 years. 
+- ⚡ **Fun fact:** Gorilla gorilla gorilla is the scientific name for the animal gorilla. 
