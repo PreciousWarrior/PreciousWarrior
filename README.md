@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The heaviest United States President was William Howard Taft who weighed 332 pounds. 
+- ⚡ **Fun fact:** Americans did not commonly use forks until after the Civil War. 
