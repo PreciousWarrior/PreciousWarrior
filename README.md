@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Approximately 18 billion disposable diapers end up in landfills each year. These diapers can takes as long as 500 years to finally decompose. 
+- ⚡ **Fun fact:** The highest mountain in the Western Hemisphere is Mount Aconcagua in Argentina. It rises 22,834 feet above sea level. 
