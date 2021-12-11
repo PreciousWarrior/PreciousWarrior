@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1958, the Crayola crayon color "Prussian Blue" was changed to "Midnight Blue" by the request of teachers as kids could not relate to Prussian history. 
+- ⚡ **Fun fact:** In a study conducted regarding toilet paper usage, Americans are said to use the most toilet paper per trip to the bathroom, which was seven sheets of toilet paper per trip. 
