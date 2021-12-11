@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average day is actually 23 hours, 56 minutes and 4.09 seconds. We have a leap year every four years to make up for this shortfall. 
+- ⚡ **Fun fact:** The oldest roller coaster in the world is the Leap-The-Dips roller coaster located in Lakemont Park in Pennsylvania. The roller coaster was built in 1902. 
