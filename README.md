@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Annually, fires that occur at home kill more Americans than all natural disasters combined. 
+- ⚡ **Fun fact:** There is a doggy disco held in Italy every year where owners can dance with their dogs. 
