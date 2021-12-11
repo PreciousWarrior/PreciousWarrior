@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Amish people do not believe in the use of aerosal air fresheners. 
+- ⚡ **Fun fact:** The only sound Seahorses make is a small clicking or popping sound during feeding or courtship. 
