@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The sole purpose of a drone bee is to mate with the queen bee. 
+- ⚡ **Fun fact:** LSD is made from lysergic acid, which is found in ergot, a type of fungus. 
