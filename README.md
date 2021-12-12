@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The chemical name for caffeine is 1,3,7-trimethylzantihine. 
+- ⚡ **Fun fact:** The temperature of milk when it is coming out of a cow is about 36 degrees celsius. 
