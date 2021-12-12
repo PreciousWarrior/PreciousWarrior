@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The desert tortoise can live without having to drink any water. It extracts the water it needs from the vegetation it eats. 
+- ⚡ **Fun fact:** In Belgium, there is a museum that is just for strawberries. 
