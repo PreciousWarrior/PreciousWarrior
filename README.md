@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Nerve cells can travel as fast as 120 metres per second. 
+- ⚡ **Fun fact:** It is estimated that by the end of 2000, there has been 142,600 tonnes of gold mined in the world. 
