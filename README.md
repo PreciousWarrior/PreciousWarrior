@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** India used to be the richest country in the world until the British invasion in the early 17th Century. 
+- ⚡ **Fun fact:** Spiral staircases in medieval castles are running clockwise. This is because all knights used to be right-handed. When the intruding army would climb the stairs they would not be able to use their right hand which was holding the sword because of the difficulties of climbing the stairs. Left-handed knights would have had no troubles, except left-handed people could never become knights because it was assumed that they were descendants of the devil. 
