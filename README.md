@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** About 85% or product warning labels on household products are inadequate. 
+- ⚡ **Fun fact:** The word "diamond" comes from the Greek word "adamas," which means "unconquerable.". 
