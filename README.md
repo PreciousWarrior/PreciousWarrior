@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Research has indicated that approximately eleven minutes are cut off the life of an average male smoker from each cigarette smoked. 
+- ⚡ **Fun fact:** Elvis Presley had a twin brother named Jesse Garon Presley who died at birth. 
