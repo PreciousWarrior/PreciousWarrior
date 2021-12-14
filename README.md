@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Tug of War was an Olympic event between 1900 and 1920. 
+- ⚡ **Fun fact:** Medical reports show that about 18% of the population are prone to sleepwalking. 
