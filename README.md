@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Bank of America was originally called the Bank of Italy until the founder, Amedeo Giannini, changed the name in 1930. 
+- ⚡ **Fun fact:** The spray WD-40 got its name because there were forty attempts needed before the creation of the "water displacing" substance. 
