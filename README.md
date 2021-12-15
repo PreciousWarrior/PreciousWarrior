@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In North America there are approximately 618 roller coasters. 
+- ⚡ **Fun fact:** In the world, the Netherlands has the highest concentration of museums in the world. Just in Amsterdam alone there are 42 museums. 
