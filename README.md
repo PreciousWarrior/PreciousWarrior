@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Pluto was discovered on February 10, 1930 by Clyde Tombaugh. 
+- ⚡ **Fun fact:** On April 6, 1925, the first in-flight movie was shown. It was a silent film and appeared on a Deutsche Luft Hansa flight. 
