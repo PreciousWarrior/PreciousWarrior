@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The largest wedding chapel in Las Vegas is the Viva Las Vegas Chapel, which can seat 100 people. 
+- ⚡ **Fun fact:** The cornea is the only living tissue in the human body that does not contain any blood vessels. 
