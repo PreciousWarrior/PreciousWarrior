@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Research indicates that people prefer the colour blue for their casual clothing. 
+- ⚡ **Fun fact:** Albert Einstein was offered the presidency of Israel in 1952, but he declined. 
