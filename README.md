@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The clown fish has the ability to change its sex. If a breeding female dies, the male fish will change its sex and mate with another male. 
+- ⚡ **Fun fact:** In 1755, the first Canadian post office opened in Halifax, Nova Scotia. The fist Deputy Postmaster General was American inventor Benjamin Franklin who was later dismissed for sympathizing with the American revolutionary cause. 
