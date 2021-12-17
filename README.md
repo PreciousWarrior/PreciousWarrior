@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Little Miss Muffet was a girl from the 16th century whose name was really Patience. 
+- ⚡ **Fun fact:** In 1953, racecar driver Tim Flock raced at Nascar with a monkey in the seat beside him. 
