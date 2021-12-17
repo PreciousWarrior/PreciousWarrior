@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Due to the deforestation of the forests in North China, over one million tons of sands blows into Beijing from the Gobi desert. It sometimes causes the sky to turn yellow.. 
+- ⚡ **Fun fact:** The longest acceptance speech in the history of the Oscars was by Greer Garson in 1942. She received an Oscar for Best Actress for the movie Mrs. Miniver, and her speech was five minutes and 30 seconds long. 
