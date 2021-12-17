@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The most dangerous job in the United States is that of a fisherman, followed by logging and then an airline pilot. 
+- ⚡ **Fun fact:** When the Galileo Probe entered Jupiter's atmosphere, it was traveling at a speed of 106,000 miles per hour. This is the fastest impact speed ever achieved by a man-made object.. 
