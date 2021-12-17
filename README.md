@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average adult has approximately six pounds of skin. 
+- ⚡ **Fun fact:** The oldest working Post Office in the world is located in the village of Sanquer, located in the Scottish Lowlands. It has been operating since 1712. 
