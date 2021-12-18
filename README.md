@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, a baby in the United States will eat fifteen pounds of cereal in their first year of life. 
+- ⚡ **Fun fact:** In the Netherlands, there are special traffic lanes for bicycles. There are approximately 17,000 kms of cycle lanes with special bicycle traffic lights.. 
