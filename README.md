@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The colours yellow, red, and orange are used in fast food restaraunts because those are the colours that stimulate hunger. 
+- ⚡ **Fun fact:** Bananas trees are not really trees. They are considered to be giant herb plants. 
