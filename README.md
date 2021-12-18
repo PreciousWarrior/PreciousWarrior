@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The tallest woman that ever lived was Zeng Jinlian who was 8 feet 2 inches tall of China. Shed died at the age of 17. 
+- ⚡ **Fun fact:** At just four years old Mozart was able to learn a piece of music in half an hour. 
