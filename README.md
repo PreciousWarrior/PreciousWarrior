@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** 3000 children die every day in Africa because of malaria. 
+- ⚡ **Fun fact:** It is not possible to tickle yourself. The cerebellum, a part of the brain, warns the rest of the brain that you are about to tickle yourself. Since your brain knows this, it ignores the resulting sensation. 
