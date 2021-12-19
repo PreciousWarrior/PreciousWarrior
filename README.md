@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** During World War II, there was not enough sugar in the U.S. to make candy as it was sent to the troops overseas. At this time, popcorn was consumed three times more than its usual amount. 
+- ⚡ **Fun fact:** About two hundred years before the birth of Christ, the Druids used mistletoe to celebrate that winter was approaching. 
