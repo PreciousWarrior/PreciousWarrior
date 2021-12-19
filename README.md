@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Bruce Lee was so fast, that they actually had to slow a film down so you could see his moves. That is the opposite of the norm. 
+- ⚡ **Fun fact:** It was believed by Ancient Hindus that the world was a sphere and rested on the back of four elephants, which stood on a turtle. 
