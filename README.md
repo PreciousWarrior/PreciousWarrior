@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the movie "The Matrix Reloaded" a 17 minute battle scene cost over $40 million to produce. 
+- ⚡ **Fun fact:** Parrots cannot eat chocolate because it is poisonous to their body. 
