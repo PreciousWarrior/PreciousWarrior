@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Jewelers Tiffany - ⚡ **Fun fact:** Someone gets divorced every ten to thirteen seconds.  Co., based in New York, are responsible for making the Super Bowl trophy. 
+- ⚡ **Fun fact:** The average medium size piano has about 230 strings. 
