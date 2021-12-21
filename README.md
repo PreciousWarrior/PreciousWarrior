@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Great White Shark can grow to be more than twenty feet long and can weigh approximately 4,000 pounds. 
+- ⚡ **Fun fact:** The two factories of the Jelly Belly Candy Company produces approximately 100,000 pounds of jelly beans a day. this amounts to about 1,250,000 jelly beans an hour. 
