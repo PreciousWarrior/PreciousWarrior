@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A duck's quack doesn't echo, and no one knows why. 
+- ⚡ **Fun fact:** There are some species of snails that are venomous. Their venom can be fatal to humans. 
