@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Sears Tower in Chicago contains enough steel to build 50,000 automobiles. 
+- ⚡ **Fun fact:** If you fart consistently for 6 years and 9 months, enough gas is produced to create the energy of an atomic bomb. 
