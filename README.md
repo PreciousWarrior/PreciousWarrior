@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** It can take up to a month for a rattlesnake to re-supply its venom. 
+- ⚡ **Fun fact:** Approximately 40% of the U.S. paper currency in circulation was counterfeit by the end of the Civil War. 
