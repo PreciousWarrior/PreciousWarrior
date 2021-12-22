@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Crayola colour flesh was changed to peach in 1962 because of the fact that people have many different skin colours. 
+- ⚡ **Fun fact:** The human brain has about 100,000,000,000 (100 billion) neurons. 
