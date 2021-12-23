@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first hot air balloon flight traveled for 5.5 miles over Paris and lasted for 23 minutes. 
+- ⚡ **Fun fact:** Hawaiian alphabet has 12 letters. 
