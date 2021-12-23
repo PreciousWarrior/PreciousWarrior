@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Braces were first invented by Pierre Fauchard in 1728. The braces were made by a flat strip of metal, which was connected to the teeth by thread.. 
+- ⚡ **Fun fact:** William Taft who was the U.S. president between 1909-1913 once got stuck in the White House bathtub. 
