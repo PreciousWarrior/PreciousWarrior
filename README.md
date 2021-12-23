@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A Chinese Scientist discovered that the Earth is round during the Han Dynasty by measuring the sun and moon's path in the sky. He recorded this fact down in the imperial records but went unnoticed until it was unearthed recently but Chinese archaeologists.. 
+- ⚡ **Fun fact:** The cigarette lighter was invented before the match.. 
