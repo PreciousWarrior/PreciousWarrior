@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Americans write approximately 50 billion checks a year making it the second most frequent payment method used after cash. 
+- ⚡ **Fun fact:** Tacoma Narrows Bridge which was located in Washington was nicknamed "Galloping Gertie" because of the unusual way it twisted and swayed with even with the slightest winds when people would drive on it. The bridge collapsed on November 7, 1940, fortunately no humans died, except for a dog. 
