@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Franklin Pierce was the first U.S. President to have a Christmas tree in the White House. 
+- ⚡ **Fun fact:** The Food and Drug Administration says the most common injury from cosmetics comes from scratching the eye with a mascara wand. 
