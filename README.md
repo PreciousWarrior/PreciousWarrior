@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Venus is the only planet that rotates clockwise. 
+- ⚡ **Fun fact:** Another name for licorice is "Sweet Wood" or "Spanish Juice.". 
