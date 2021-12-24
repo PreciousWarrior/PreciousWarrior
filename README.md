@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The puma and the leopard are the highest jumping mammals. They are able to reach a height of 16.5 feet. 
+- ⚡ **Fun fact:** Orcas (killer whales), when traveling in groups, breathe in unison. 
