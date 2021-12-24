@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The CN Tower, in Toronto, is the tallest freestanding structure in the world with a height of about 553 metres. 
+- ⚡ **Fun fact:** A giraffe is able to clean its ears with its own tongue. 
