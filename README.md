@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Mice will nurse babies that are not their own. 
+- ⚡ **Fun fact:** The most expensive perfume in the world is Parfum VI, which was made by Arthur Burnham. A 4 inch bottle which is covered with diamonds and 24-carat gold costs $71,380. 
