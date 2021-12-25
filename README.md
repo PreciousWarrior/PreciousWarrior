@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Actress Debra Winger helped to perform the voice of E.T. in the movie ?E.T. The Extra Terrestrial (1982).". 
+- ⚡ **Fun fact:** Club Direct, a travel insurance company in Britain, provides insurance plans for protection from falling coconuts. 
