@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are at least six universal facial expressions. They are: happiness, sadness, disgust, fear, anger and surprise. 
+- ⚡ **Fun fact:** Sex acts like a natural antihistamine, in can clear up a stuffy nose. 
