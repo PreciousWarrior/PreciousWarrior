@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, 100 people choke to death on ballpoint pens every year.. 
+- ⚡ **Fun fact:** Ukrainian monk, Dionysius Exiguus, created the modern day Christian calendar. 
