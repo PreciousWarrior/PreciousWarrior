@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The flea can jump 350 times its body length, that is like a 6 foot-tall human jumping the length of 7 football fields. 
+- ⚡ **Fun fact:** Mice will nurse babies that are not their own. 
