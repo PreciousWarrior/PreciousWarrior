@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are five million scent receptors located in a human beings nose. 
+- ⚡ **Fun fact:** Cataloupes are named after the gardens of Cantaloupe, Italy where some belive this melon was first grown. 
