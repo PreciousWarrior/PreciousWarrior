@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Researchers have developed odourless socks. The sock fabric is made by attaching molecules that contain chlorine called halamines to textile fibers. 
+- ⚡ **Fun fact:** The human heart creates enough pressure when it pumps out to the body to squirt blood 30 feet. 
