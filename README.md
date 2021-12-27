@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Children laugh about 400 times a day, while adults laugh on average only 15 times a day. 
+- ⚡ **Fun fact:** Americans are responsible for generating roughly 20% percent of the garbage in the world. 
