@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** As part of the original design, the names of 72 French scientists and other famous people is imprinted on the sides of the Eiffel tower. 
+- ⚡ **Fun fact:** The tuatara lizard of New Zealand has three eyes, two in the center of its head and one on the top of its head. 
