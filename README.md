@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The deepest mine in the world is the East Rand mine, which goes to a depth of about 3,585 metres. 
+- ⚡ **Fun fact:** The most senior crayon maker Emerson Moser retired after making 1.4 billion crayons for Crayola. It was then that he revealed that he was actually colorblind. 
