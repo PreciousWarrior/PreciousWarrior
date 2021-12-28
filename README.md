@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The reason the soft drink Dr Pepper is called that is because the inventor Wade Morrison named it after Dr. Charles Pepper who had given him his first job. 
+- ⚡ **Fun fact:** Kiwis are the only known bird to have nostrils located at the tip of their beak. 
