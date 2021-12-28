@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** ABBA got their name by taking the first letter from each of their names (Agnetha, Bjorn, Benny, Anni-frid.). 
+- ⚡ **Fun fact:** Scientists have determined that having guilty feelings may actually damage your immune system. 
