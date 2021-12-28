@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Soil that is heated by geysers are now making it possible to produce bananas in Iceland. 
+- ⚡ **Fun fact:** A seagull can drink salt water because it has special glands that filter out the salt. 
