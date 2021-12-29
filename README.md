@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The largest chicken egg ever laid weighed a pound and had a double yolk and shell. 
+- ⚡ **Fun fact:** Over the course of one year, a coffee tree only produces about 1.5 pounds of coffee. 
