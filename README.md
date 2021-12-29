@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first commercial chewing gum was sold in 1848 by John B. Curtis, who also made the gum. He called the gum "State of Maine Pure Spruce Gum.". 
+- ⚡ **Fun fact:** One out of every five births in the United States are delivered by Cesarean section. 
