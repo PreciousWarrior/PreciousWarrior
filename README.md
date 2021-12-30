@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The rhinoceros beetle can carry up to 850 times its weight on its back. This is equivalent to a person carrying over 50 mini-vans on their back. 
+- ⚡ **Fun fact:** Wood frogs can be frozen solid and then thawed, and continue living. They use the glucose in their body to protect their vital organs while they are in a frozen state. 
