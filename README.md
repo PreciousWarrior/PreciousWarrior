@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are 293 steps to the top of the Leaning Tower of Pisa. 
+- ⚡ **Fun fact:** DC-10, the name of an airplane stands for "Douglas Commercial.". 
