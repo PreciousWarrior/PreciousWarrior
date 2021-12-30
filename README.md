@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Some people start to sneeze if they are exposed to sunlight or have a light shined into their eye. 
+- ⚡ **Fun fact:** The water inside of a coconut is identical to human blood plasma. Many lives in third world countries have been saved from coconut water fed through an IV. 
