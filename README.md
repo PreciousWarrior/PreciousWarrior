@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Faberge, "Winter Egg" was sold in 1994 for $5.6 million. This is the most expensive decorative egg that has ever been sold. 
+- ⚡ **Fun fact:** When Kleenex was first introduced to the market in 1924, it was marketed as a make up or cold cream remover. 
