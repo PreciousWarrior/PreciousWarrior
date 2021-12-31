@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The number of births that occur in India each year is higher than the entire population of Australia. 
+- ⚡ **Fun fact:** During the making of the the movie "Fight Club," actor Brad Pitt chipped his tooth. However, he did not get his tooth capped until after the movie was done filming as he thought it would look better chipped for his character. 
