@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Gloucestershire airport in England used to blast Tina Turner songs on its runways to scare birds away. 
+- ⚡ **Fun fact:** There are approximately 1300 species of scorpion but only 25 of them are deadly. 
