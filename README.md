@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Ballroom dancing is a course at Brigham Young University in Utah. 
+- ⚡ **Fun fact:** The number of births that occur in India each year is higher than the entire population of Australia. 
