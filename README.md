@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The sentence "the quick brown fox jumps over the lazy dog" uses every letter in the english language. 
+- ⚡ **Fun fact:** People who ride on roller coasters have a higher chance of having a blood clot in the brain. 
