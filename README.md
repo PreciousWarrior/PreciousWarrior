@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In his youth, United States president George W. Bush used to play for the Midland (Texas) Central Little League. He played the position of the catcher. 
+- ⚡ **Fun fact:** An armadillo can walk under water. 
