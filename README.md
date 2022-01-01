@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The ant can lift 50 times its own weight, can pull 30 times its own weight, and always falls over on its right side when intoxicated. 
+- ⚡ **Fun fact:** Saturday is the most popular day for people to eat out in the United States. 
