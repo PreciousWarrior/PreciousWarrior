@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Kentucky, 50 percent of the people who get married for the first time are teenagers. 
+- ⚡ **Fun fact:** Over 90% of poison exposures occur in homes. 
