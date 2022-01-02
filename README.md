@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the 1960 movie "Psycho" by Alfred Hitchcock, chocolate syrup was used to show the blood in the shower scene. 
+- ⚡ **Fun fact:** Three consecutive strikes in bowling is called a turkey. 
