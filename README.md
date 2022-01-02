@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** It takes about 63,000 trees to make the newsprint for the average Sunday edition of The New York Times. 
+- ⚡ **Fun fact:** Leonardo Da Vinci invented the scissors. 
