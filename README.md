@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first letter Vanna White ever turned on the game show Wheel of Fortune was the letter "T.". 
+- ⚡ **Fun fact:** To manufacture a new car approximately 148,000 liters of water is needed.. 
