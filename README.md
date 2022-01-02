@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Three consecutive strikes in bowling is called a turkey. 
+- ⚡ **Fun fact:** Each day 400 gallons of recycled blood are pumped through the kidneys. 
