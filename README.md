@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Ancient Romans at one time used human urine as an ingredient in their toothpaste. 
+- ⚡ **Fun fact:** In 1970, Chip maker Intel purchased a pear orchard to build their corporate headquarters on. 
