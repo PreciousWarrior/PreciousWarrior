@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Daytime dramas are called Soap Operas because they were originally used to advertise soap powder. In America in the early days of TV, advertisers would write stories around the use of their soap powder. 
+- ⚡ **Fun fact:** A cat has 32 muscles in each ear. 
