@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In a year, an average person uses the toilet 2500 times a year. 
+- ⚡ **Fun fact:** Kotex was first manufactured as bandages, during W.W.I. 
