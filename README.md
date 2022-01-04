@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Eyebrow hair lasts between 3-5 months before it sheds. 
+- ⚡ **Fun fact:** The Indian election in 1984 was the largest election of any country. Over 379,000,000 voters were eligible to vote at over 480,000 polling stations. 
