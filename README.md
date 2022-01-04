@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** February 17th, 1930, was the first flight by a cow in an airplane. The milk that was produced by the cow during the flight was put into containers and parachuted over the city of St. Louis. 
+- ⚡ **Fun fact:** The papaya tree is known as "the medicinal tree" in some cultures because it?s seeds and leaves have been used as ingredients in different medicines. 
