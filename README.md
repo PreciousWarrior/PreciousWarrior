@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** At least 7% of all health care costs in the United States are attributed to smoking. 
+- ⚡ **Fun fact:** The "Star Spangled Banner" did not become a national anthem until 1931. It was designated by an Act of Congress. 
