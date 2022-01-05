@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average cocoon contains about 300-400 metres of silk. 
+- ⚡ **Fun fact:** If you yelled for 8 years, 7 months and 6 days, you would have produced enough sound energy to heat one cup of coffee. 
