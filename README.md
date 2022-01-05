@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Flamingos are able to fly at a speed of approximately 55 kilometers an hour. In one night they can travel about 600 km. 
+- ⚡ **Fun fact:** The average cocoon contains about 300-400 metres of silk. 
