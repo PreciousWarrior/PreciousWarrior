@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Every year, an igloo hotel is built in Sweden that has the capacity to sleep 100 people. 
+- ⚡ **Fun fact:** In an average lifetime, a person will spend 4 years travelling in an automobile and six months waiting at a red light.. 
