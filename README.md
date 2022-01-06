@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The name of the famous snack "Twinkies" was invented by seeing a billboard in St. Louis, that said "Twinkle Toe Shoes.". 
+- ⚡ **Fun fact:** Approximately 50% of Americans admit they have ran a red light. 
