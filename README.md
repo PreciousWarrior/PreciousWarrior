@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Canadians eat more Kraft Dinner (Macaroni and Cheese) per capita than any other country in the world. 
+- ⚡ **Fun fact:** The reason why golf balls have dimples on them is because it helps in the ball to move a farther distance by reducing drag. 
