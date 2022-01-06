@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Approximately 50% of Americans admit they have ran a red light. 
+- ⚡ **Fun fact:** The strike note of the Liberty Bell in Philadelphia, Pennsylvania is e-flat. 
