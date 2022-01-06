@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are over 100 styles of BluBlocker sunglasses available on the market. 
+- ⚡ **Fun fact:** Sharks have survived on earth for about 400 million years. 
