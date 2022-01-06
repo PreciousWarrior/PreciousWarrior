@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** It takes 12 honeybees to make one teaspoon of honey. 
+- ⚡ **Fun fact:** The oldest roller coaster in the world is the Leap-The-Dips roller coaster located in Lakemont Park in Pennsylvania. The roller coaster was built in 1902. 
