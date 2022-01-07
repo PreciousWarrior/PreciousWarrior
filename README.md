@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Just by recycling one aluminum can, enough energy would be saved to have a TV run for three hours.. 
+- ⚡ **Fun fact:** A small drip from a faucet can waste up to 50 gallons of water daily, which is enough water to run a dishwasher twice on a full cycle. 
