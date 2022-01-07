@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Bananas trees are not really trees. They are considered to be giant herb plants. 
+- ⚡ **Fun fact:** The Pentagon cost $49,600,000 to build in 1941. 
