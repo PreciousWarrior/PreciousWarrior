@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The strongest gust of wind was recorded at the Mount Washington Observatory on April 12th, 1934, and measured 231 miles per hour.. 
+- ⚡ **Fun fact:** A person who smokes a pack of cigarettes a day will on average lose two teeth every ten years. 
