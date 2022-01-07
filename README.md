@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The United Parcel Service shipped the killer whale Keiko (star of Disney movie "Free Willy") from Mexico City to Newport, Oregon in 1998. 
+- ⚡ **Fun fact:** Corned beef got its name because this beef was preserved with pellets of salt that were the size of corn kernels, which was also referred to as "corns" of salt. 
