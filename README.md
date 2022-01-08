@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The highest point in France is Mont Blanc, located in the Alps.. 
+- ⚡ **Fun fact:** Tomato ketchup is a good conditioner for the hair. It also helps get the greenish tinge that some blonde haired people get after swimming in water with chlorine in it. 
