@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The tallest tree recorded is located in Humboldt Redwoods State Park, California. It is a coast redwood and has been measured at 117 metres high. 
+- ⚡ **Fun fact:** It takes seven to ten days to make a jelly belly jellybean. 
