@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Bill Gates donated close to $100 million to fight AIDS in India. As a percent of his total wealth, this would be comparable to him donating ten cents if he only had $60. 
+- ⚡ **Fun fact:** There are approximately 7,000 feathers on an eagle. 
