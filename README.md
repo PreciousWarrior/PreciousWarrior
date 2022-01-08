@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are approximately 7,000 feathers on an eagle. 
+- ⚡ **Fun fact:** Ellen Macarthur, yachtswoman, had a total of 891 naps in 94 days that were each 36 minutes long while on her Vendee Round the Globe yacht race. 
