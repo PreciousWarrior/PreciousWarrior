@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In ancient Rome, it was considered a sign of leadership to be born with a crooked nose. 
+- ⚡ **Fun fact:** In 1946 Danon Yogurt were the first to add fruit to commercially produced yogurt in U.S. 
