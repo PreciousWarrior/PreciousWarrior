@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The makers of Crayola produce over 2 billion crayons in a year. 
+- ⚡ **Fun fact:** The only South East Asian country that has never been colonized by a Western Power is Thailand. 
