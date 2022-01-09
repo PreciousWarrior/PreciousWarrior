@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A squash ball moving at 150 kilometers per hour has the same impact of a .22 bullet. 
+- ⚡ **Fun fact:** The male platypus has poisonous spurs on its legs. 
