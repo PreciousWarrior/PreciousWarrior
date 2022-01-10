@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are species of fish that can walk on land in search of water when its water source dries up. Some can survive as long as three days on land such as the snakehead fish. 
+- ⚡ **Fun fact:** The origins of the soldier term "G.I." is an abbreviation for "Government Issue," which was stamped on all government kits supplied to recruits in the US Army during World War II. 
