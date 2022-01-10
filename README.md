@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Air is passed through the nose at a speed of 100 miles per hour when a person sneezes. 
+- ⚡ **Fun fact:** In the year 1900, for a women to be a telephone operator she had to be between the ages of 17 and 26 and not be married. 
