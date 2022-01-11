@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** People whose mouth has a narrow roof are more likely to snore. This is because they have less oxygen going through their nose. 
+- ⚡ **Fun fact:** Nylon is a man-made fibre that is made from coal and petroleum. 
