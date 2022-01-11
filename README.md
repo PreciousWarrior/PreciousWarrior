@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Annually, approximately 46 millions Cokes, five million pounds of french fries, and seven million hamburgers are consumed at Walt Disney World Resort. 
+- ⚡ **Fun fact:** In 1961, Italian artist Piero Manzoni packed his feces in cans, signed and mounted them, and then sold them as art. 
