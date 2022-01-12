@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Even though the rose does not bear any fruit, the rose hips have more Vitamin C than most vegetables and fruits. 
+- ⚡ **Fun fact:** The first Valentine candy box was invented by Richard Cadbury in the 1800's.. 
