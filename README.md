@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The ant can lift 50 times its own weight, can pull 30 times its own weight, and always falls over on its right side when intoxicated. 
+- ⚡ **Fun fact:** Even though the rose does not bear any fruit, the rose hips have more Vitamin C than most vegetables and fruits. 
