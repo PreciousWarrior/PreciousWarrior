@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first Valentine candy box was invented by Richard Cadbury in the 1800's.. 
+- ⚡ **Fun fact:** Annually a thousand people are killed by scorpions in Mexico. 
