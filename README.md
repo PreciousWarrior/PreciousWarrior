@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A rabbit is not able to vomit. 
+- ⚡ **Fun fact:** The movie "Chicken Run" made in 2,000 had the most plasticine used in an animated movie. They used 2,380 kg of plasticine for the movie. 
