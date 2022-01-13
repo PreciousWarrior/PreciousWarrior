@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are 691 drinking fountains in the Pentagon. 
+- ⚡ **Fun fact:** For the movie "Tootsie" actor Dustin Hoffman thought of the title. His mother used to call him that as a child. 
