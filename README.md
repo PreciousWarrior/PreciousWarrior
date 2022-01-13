@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Former U.S. president Ronald Reagan worked as a lifeguard in his youth at a beach near Dixon, Illinois and saved over 77 lives. 
+- ⚡ **Fun fact:** It would take approximately twenty-four trees that are on average six to eight inches in diameter to produce one ton of newsprint for the Sunday edition of the New York Times. 
