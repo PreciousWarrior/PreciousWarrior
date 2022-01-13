@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Canada, men are three times more likely than women to have seen a doctor in the last year. 
+- ⚡ **Fun fact:** The size of a raindrop is around 0.5 mm - 2.5 mm, and they fall from the sky on average 21 feet per second.. 
