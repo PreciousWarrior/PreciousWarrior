@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Pretzel that have no salt on them are called "baldies.". 
+- ⚡ **Fun fact:** On average, 81% of Americans 16 years of age and older watch television at least once in a day. 
