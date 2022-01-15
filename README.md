@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The majority of American models are skinnier than 98% of American women. 
+- ⚡ **Fun fact:** The Angel Falls in Venezuela were named after an American pilot, Jimmy Angel, whose plane got stuck on top of the mountain while searching for gold. 
