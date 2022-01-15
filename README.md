@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, a whole chicken from the grocery store weighs 3 pounds 12 ounces. 
+- ⚡ **Fun fact:** Macadamia nuts are not sold in their shells because it takes 300 pounds per square inch of pressure to break the shell. 
