@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, it is estimated that females injure themselves ten time more than males do while playing sports. 
+- ⚡ **Fun fact:** The first hair dryer was a vacuum cleaner that was used for drying hair. 
