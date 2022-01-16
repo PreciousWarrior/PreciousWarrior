@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Women are twice as likely to be diagnosed with depression than men in the United States. 
+- ⚡ **Fun fact:** In 1996, toy company Mattel released a "Harley Davidson" Barbie. This dolls distinctive feature is a birth mark on her face that changes position with every new release of the doll. 
