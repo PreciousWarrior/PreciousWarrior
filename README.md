@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Rice flour was used to strengthen some of the bricks that make up the Great Wall of China. 
+- ⚡ **Fun fact:** The United Parcel Service shipped the killer whale Keiko (star of Disney movie "Free Willy") from Mexico City to Newport, Oregon in 1998. 
