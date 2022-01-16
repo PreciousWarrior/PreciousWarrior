@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are approximately fifty Bibles sold each minute across the world. 
+- ⚡ **Fun fact:** In 1926, a waiter in Budapest committed suicide. He left his suicide note in the form of a crossword and the police had to get help from the public to solve it. 
