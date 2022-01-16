@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The smoke that is produced by a fire kills more people than a burn does because of carbon monoxide and other dangerous gases. 
+- ⚡ **Fun fact:** A British term for slot machine is "fruit machine" or "one-armed bandit.". 
