@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first president to have a picture taken was John Quincy Adams. 
+- ⚡ **Fun fact:** The first television broadcast of the Oscars took place in 1953, hosted by Bob Hope on NBC. 
