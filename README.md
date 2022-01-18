@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The USS Abraham Lincoln has five gymnasiums on the ship and a basketball league with 22 teams. 
+- ⚡ **Fun fact:** Women on average live seven years longer than men do. 
