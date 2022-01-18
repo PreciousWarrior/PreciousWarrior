@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** 898 tornadoes were recorded to have occurred in the United States in the year 2000.. 
+- ⚡ **Fun fact:** Painting a house yellow or having a yellow trim helps in selling a house faster. 
