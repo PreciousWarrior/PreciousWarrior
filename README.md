@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Ringo Starr appeared in a Japanese advertisement for apple sauce. Ironically his name means "apple sauce" in Japanese. 
+- ⚡ **Fun fact:** From 1939 to 1942, there was a undersea post office in the Bahamas. 
