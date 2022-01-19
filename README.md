@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1477, the first diamond engagement ring was given to Mary of Burgundy by Archduke Maximillian of Austria. 
+- ⚡ **Fun fact:** There are some types of chocolates that are actually good for the arteries and heart. 
