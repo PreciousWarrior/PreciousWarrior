@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** An artist from Chicago named Dwight Kalb created a statue of Madonna made out of 180 pounds of ham. 
+- ⚡ **Fun fact:** Dill seeds are so small that approximately 10,000 dill seeds would be required to make an ounce. 
