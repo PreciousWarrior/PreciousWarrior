@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The word "Denim" comes from the French phrase "serge de Nimes" which is a fabric made in a town located in southern France. 
+- ⚡ **Fun fact:** On average, Americans eat one hundred acres of pizza a day. This amounts to about three hundred fifty slices per second. 
