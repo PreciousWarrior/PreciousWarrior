@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Americans, on average, spend 18% of his or her income on transportation as compared to only 13% spent on food. 
+- ⚡ **Fun fact:** In Hong Kong, delivery times are primarily influenced by traffic conditions on elevators. It often takes drivers longer to travel vertically than horizontally, as access to elevators is so congested during "high peak" hours. This is due to the volume of people residing in high rises. 
