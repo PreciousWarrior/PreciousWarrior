@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first person to die in the electric chair was William Kemmler, an ax murderer from New York on August 6, 1890. 
+- ⚡ **Fun fact:** In 410 A.D. Alaric the Visigoth demanded that Rome give him three thousand pounds of pepper as ransom. 
