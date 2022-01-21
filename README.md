@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** People that smoke have 10 times as many wrinkles as a person that does not smoke. 
+- ⚡ **Fun fact:** Weatherman Willard Scott was the first Ronald McDonald. 
