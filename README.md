@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Pepsi got its name from the ingredient pepsin, which is said to aid in digestion, however, it is not known. 
+- ⚡ **Fun fact:** The Great Pyramids used to be as white as snow because they were encased in a bright limestone that has worn off over the years. 
