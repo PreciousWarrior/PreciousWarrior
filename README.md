@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Wasps that feed on ferment occasionally get drunk and pass out. 
+- ⚡ **Fun fact:** On average, 90% of the people that have the disease Lupus are female. 
