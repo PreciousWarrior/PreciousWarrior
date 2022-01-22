@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Sugar Bear (the mascot for Golden Crisps cereal) was born in 1963. 
+- ⚡ **Fun fact:** On average 1,668 gallons of water are used by each person in the United States daily. 
