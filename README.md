@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Bird droppings are the chief export of Nauru, an island nation in the Western Pacific. 
+- ⚡ **Fun fact:** No other animal gives us more by-products than the hog. These by-products include pig suede, buttons, glass, paint brushes, crayons, chalk, and insulation to name a few. 
