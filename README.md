@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Humans and dolphins are the only species that have sex for pleasure. 
+- ⚡ **Fun fact:** People drank gold powder mixed in with water in medieval Europe to relieve pain from sore limbs. 
