@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The largest fish in the world is the whale shark. It can weigh several tons and grow to more than fifty feet in length. 
+- ⚡ **Fun fact:** Albert Einstein was cremated and his ashes were spread over a river located in New Jersey. 
