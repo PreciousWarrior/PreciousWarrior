@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The scarlet tanager, a songbird native to Illinois, can eat as many as 2,100 gypsy-moth caterpillars in one hour. 
+- ⚡ **Fun fact:** The decomposition point of Olive Oil is 220 degrees Celsius. 
