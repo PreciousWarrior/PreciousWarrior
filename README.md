@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A dog by the name of Laika was launched into space aboard the Russian spacecraft Sputnik 2 in 1957. 
+- ⚡ **Fun fact:** The largest fish in the world is the whale shark. It can weigh several tons and grow to more than fifty feet in length. 
