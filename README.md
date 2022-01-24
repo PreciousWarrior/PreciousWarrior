@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Over 4.5 billion sticks have Trident gum have been chewed. If the stick of gum were laid out end to end they could circle the globe approximately 1.8 times. 
+- ⚡ **Fun fact:** The fastest running bird is the Ostrich, which has been clocked at 97.5 kilometres per hour. 
