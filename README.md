@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The city of Nottingham in England was the first city to have Braille signs (signs for the blind) in its shopping malls for the blind. 
+- ⚡ **Fun fact:** Americans write approximately 50 billion checks a year making it the second most frequent payment method used after cash. 
