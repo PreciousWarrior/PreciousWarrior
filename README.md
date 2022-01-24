@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The word Karate means, "empty hand.". 
+- ⚡ **Fun fact:** The oldest bird on record was Cocky, a cockatoo, who died in the London Zoo at the age of 82. 
