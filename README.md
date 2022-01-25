@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Obsessive nose picking is referred to as rhinotillexomania. 
+- ⚡ **Fun fact:** In the U.S., the milk production per dairy cow is approximately 12,000 pounds. 
