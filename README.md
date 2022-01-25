@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The origin of apples traces back to the Middle East over 4,000 years ago. 
+- ⚡ **Fun fact:** In the United States birds and planes collided more than 22,000 times between the years of 1990 and 1998. 
