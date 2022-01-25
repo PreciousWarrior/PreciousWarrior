@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Amtrak is the combination of the words "American" and "Track". 
+- ⚡ **Fun fact:** More pollution is emitted from the average home compared to the average car.. 
