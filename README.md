@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In a year, about 90 million jars of Skippy Peanut Butter are sold. This works out to three jars sold every second. 
+- ⚡ **Fun fact:** Bamboo plants can grow up to 36 inches in a day.. 
