@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Urine from men?s public urinals was sold as a commodity in Ancient Rome. It was used as a dye and for making clothes hard. 
+- ⚡ **Fun fact:** The palms of your hands and the soles of your feet cannot tan, or grow hair. 
