@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** With winds of 50 miles per hour, The Statue of Liberty sways three inches and the torch sways five inches. 
+- ⚡ **Fun fact:** Leonardo da Vinci was dyslexic, and he often wrote backwards. 
