@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Herbert Hoover, who was the 31st president of the United Stated, turned over all the Federal salary checks he received to charity during the 47 years he was in government. 
+- ⚡ **Fun fact:** The longest Monopoly game ever played was 1,680 hours long, which is seventy straight days. 
