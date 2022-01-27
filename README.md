@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The eight most popular foods to cause food allergies are: milk, eggs, wheat, peanuts, soy, tree nuts, fish, and shellfish. 
+- ⚡ **Fun fact:** The Basenji dog is the only dog that is not able to bark. 
