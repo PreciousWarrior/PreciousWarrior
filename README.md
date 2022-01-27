@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A cockroach can change directions up to 25 times in a second. 
+- ⚡ **Fun fact:** With winds of 50 miles per hour, The Statue of Liberty sways three inches and the torch sways five inches. 
