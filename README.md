@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The murder rate in the United States is about four times greater than in Japan. In Japan, no private citizen can buy a handgun legally. 
+- ⚡ **Fun fact:** The Saguaro Cactus, found in South-western United States does not grow branches until it is 75 years old.. 
