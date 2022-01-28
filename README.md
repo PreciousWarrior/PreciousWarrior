@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Each year all of the Hostess bakeries combined bake 500 million Twinkies a year. (A twinkie is a sponge cake with a creamy filling.). 
+- ⚡ **Fun fact:** A giraffe is able to clean its ears with its own tongue. 
