@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Hundreds of years ago, only the wealthy people used to wear underwear. 
+- ⚡ **Fun fact:** The Great Pyramids used to be as white as snow because they were encased in a bright limestone that has worn off over the years. 
