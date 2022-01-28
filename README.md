@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Abdul Kassam Ismael, Grand Vizier of Persia in the tenth century, carried his library with him wherever he went. Four hundred camels carried the 117,000 volumes. 
+- ⚡ **Fun fact:** Each year all of the Hostess bakeries combined bake 500 million Twinkies a year. (A twinkie is a sponge cake with a creamy filling.). 
