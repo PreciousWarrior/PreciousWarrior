@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** After twenty-seven years, Betty Rubble made her debut as a Flintstones Vitamin in 1996. 
+- ⚡ **Fun fact:** The only 15 letter word that can be spelled without repeating a letteris uncopyrightable.. 
