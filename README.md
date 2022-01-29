@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The only 15 letter word that can be spelled without repeating a letteris uncopyrightable.. 
+- ⚡ **Fun fact:** In a day, kids in the U.S. that are between the ages of 2 - 8 spend 28 minutes of their time coloring. 
