@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Male sea horses are the ones that get impregnated rather than the females. Males have a pouch on their belly that provides incubation for the female?s eggs and they can have up to 1500 babies at one time. 
+- ⚡ **Fun fact:** After twenty-seven years, Betty Rubble made her debut as a Flintstones Vitamin in 1996. 
