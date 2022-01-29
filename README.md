@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A caterpillar grows roughly 27,000 times its size when it first emerges as an egg. 
+- ⚡ **Fun fact:** By walking an extra 20 minutes every day, an average person will burn off seven pounds of body fat in an year. 
