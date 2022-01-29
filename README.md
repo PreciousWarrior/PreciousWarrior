@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The most popular place to burn candles in the house is the living room. 
+- ⚡ **Fun fact:** A caterpillar grows roughly 27,000 times its size when it first emerges as an egg. 
