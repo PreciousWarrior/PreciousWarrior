@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Only two people signed the Declaration of Independence on July 4th, JohnHancock and Charles Thomson. Most of the rest signed on August 2, butthe last signature wasn't added until 5 years later.. 
+- ⚡ **Fun fact:** There is cyanide in apple pips. 
