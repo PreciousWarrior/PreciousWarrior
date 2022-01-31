@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Chocolate can be fatal to dogs. Chocolate contains a chemical theobromine, which is poisonous to dogs. 
+- ⚡ **Fun fact:** In 1785, the city of Paris removed bones from cemeteries to ease the overflow of dead people. They took these bones and stacked them in tunnels now known as the Catacombs. You can visit these tunnel attractions and work your way along long corridors, which are stacked with skulls and bones. 
