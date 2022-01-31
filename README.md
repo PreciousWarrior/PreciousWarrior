@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Nobel Peace prize was first awarded in 1901 to Jean Henry Dunant, who was the founder of the Swiss Red Cross. 
+- ⚡ **Fun fact:** The Pacific island of Tonga once issued a stamp that was banana shaped. 
