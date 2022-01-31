@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Cats have over one hundred vocal sounds, dogs only have about ten. 
+- ⚡ **Fun fact:** In a lifetime, an average driver will release approximately 912 pints of wind inside a car. 
