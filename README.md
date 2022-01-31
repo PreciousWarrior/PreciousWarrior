@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Nutmeg is extremely poisonous if injected intravenously. 
+- ⚡ **Fun fact:** Children who are breast fed tend to have an IQ seven points higher than children who are not. 
