@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average redheads have 90,000 hairs. People with black hair have about 110,000 hairs. 
+- ⚡ **Fun fact:** Cats have over one hundred vocal sounds, dogs only have about ten. 
