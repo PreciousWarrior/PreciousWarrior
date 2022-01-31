@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There is a "cemetery town" in California named Colma. Concerns about the public health, crime, and the need for space forced the city of San Francisco to outlaw burials in 1902. The city of Colma, which is five miles south of San Francisco, was established to bury the dead. The ratio of dead to living people is 750 to 1. 
+- ⚡ **Fun fact:** Ho-Ho-Kus, a small town in New Jersey, is the only town in the United States of America that has two dashes in its name. 
