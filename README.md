@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The property (ID, Facts) VALUES on the Monopoly game board are the same today as they were in 1935. 
+- ⚡ **Fun fact:** The Mall of America, located in Bloomington, Minnesota is so big that it can hold 24,336 school buses. 
