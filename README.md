@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Dolphins hear by having sound waves transmit through their skull to their inner ear region. 
+- ⚡ **Fun fact:** The first Life Saver flavour, which was peppermint, was invented in 1912 and it was called Pep-O-Mint. 
