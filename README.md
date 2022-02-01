@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1631, two London bible printers accidentally left the word "not" out of the seventh commandment, which then read, "Thou shalt commit adultery." This legendary book is now known as the "Wicked Bible.". 
+- ⚡ **Fun fact:** In Los Angeles, there are fewer people than there are automobiles. 
