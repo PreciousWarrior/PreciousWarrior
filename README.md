@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Former U.S. President Abraham Lincoln suffered a nervous breakdown in 1836. 
+- ⚡ **Fun fact:** Most snakes have six rows of teeth. 
