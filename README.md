@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Another word to refer to old age is senectitude. 
+- ⚡ **Fun fact:** Ray Kroc bought McDonalds for $2.7 million in 1961 from the McDonald brothers. 
