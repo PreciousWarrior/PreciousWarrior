@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Wham-O manufactured twenty-thousand hula-hoops a day at the peak of hula-hoop popularity in 1958. 
+- ⚡ **Fun fact:** Some Chinese chopsticks contain gold as on of their materials. 
