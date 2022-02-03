@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Eating eight strawberries will provide you with more Vitamin C than an orange. 
+- ⚡ **Fun fact:** The name "Snickers" for the popular candy bar was named after a horse that the Mars family owned. 
