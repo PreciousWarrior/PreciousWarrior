@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1908, the first machine to make lollipops opened for business in New Haven, Connecticut. 
+- ⚡ **Fun fact:** Singer Billy Joel tried to commit suicide when he was 21 by drinking furniture polish. 
