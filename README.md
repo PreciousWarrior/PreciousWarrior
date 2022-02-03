@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Author Dr. Seuss wrote the book "Green Eggs and Ham" because the editor made him a bet that he could not write a book, which contained less than fifty words. 
+- ⚡ **Fun fact:** Retail sales for soft drinks in the United States in 2001 were more than sixty billion dollars. 
