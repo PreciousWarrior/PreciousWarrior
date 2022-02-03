@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Retail sales for soft drinks in the United States in 2001 were more than sixty billion dollars. 
+- ⚡ **Fun fact:** A cesium atom in an atomic clock that beats over nine billion times a second.. 
