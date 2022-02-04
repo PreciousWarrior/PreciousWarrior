@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The record for the longest Monopoly game played in a bathtub is ninety-nine hours. 
+- ⚡ **Fun fact:** Research indicates that mosquitoes are attracted to people who have recently eaten bananas. 
