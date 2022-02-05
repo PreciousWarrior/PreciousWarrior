@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** When Sony introduced the walkman, it had a variety of different names in different countries. It was called "Soundabout" in the U.S., "Stowaway" in the U.K., and "Freestyle" in Australia. 
+- ⚡ **Fun fact:** The word Lethologica describes the state of not remembering the word you want to say. 
