@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Thirty to 40 gallons of sugar maple sap must be boiled down to make just one gallon of maple syrup. 
+- ⚡ **Fun fact:** The human body has approximately 37,000 miles of capillaries. 
