@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** An American chews an average of 300 sticks of gum in a year. 
+- ⚡ **Fun fact:** Soy crayons have been invented to replace wax crayons and one acre of soybeans can produce over 80,000 crayons. 
