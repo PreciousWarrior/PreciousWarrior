@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** 1 out of every 4 kids in the USA is overweight. 
+- ⚡ **Fun fact:** There are more than 250,000 rivers in the United States, which amounts to 3.5 million miles of rivers. 
