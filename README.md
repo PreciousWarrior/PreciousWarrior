@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Oral-B is a combination of oral hygiene and the letter B, which stands for the word better. 
+- ⚡ **Fun fact:** A cow releases about 125 gallons of gas per day. 
