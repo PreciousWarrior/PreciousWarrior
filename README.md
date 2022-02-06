@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The only sound Seahorses make is a small clicking or popping sound during feeding or courtship. 
+- ⚡ **Fun fact:** In ancient Egypt, doctors used jolts from the electric catfish to reduce the pain of arthritis. 
