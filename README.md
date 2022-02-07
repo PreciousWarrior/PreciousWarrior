@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The smallest will ever written was 3.8 cm in diameter. It had 40 words written on it and was signed by two witnesses. 
+- ⚡ **Fun fact:** Baseball games between college teams have been played since the Civil War. 
