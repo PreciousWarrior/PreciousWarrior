@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the United States, 80% of households have oatmeal in their kitchen. 
+- ⚡ **Fun fact:** Close to 3 billion movie tickets are sold in India every year. 
