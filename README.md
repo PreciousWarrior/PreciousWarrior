@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** An alligator has about 80 teeth in its mouth at one time. An alligator can go through 3,000 teeth in a lifetime. 
+- ⚡ **Fun fact:** On average, Guinness sells 7 million glasses of beer a day. 
