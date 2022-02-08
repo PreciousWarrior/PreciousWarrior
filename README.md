@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average cow produces about 2,305 gallons of milk each year. 
+- ⚡ **Fun fact:** Some African tribes refer to themselves as "motherhoods" instead of families. 
