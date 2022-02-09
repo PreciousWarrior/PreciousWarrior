@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Lady Bugs really are not bugs. They are actually beetles and their correct name is The Ladybird Beetle. 
+- ⚡ **Fun fact:** Cataloupes are named after the gardens of Cantaloupe, Italy where some belive this melon was first grown. 
