@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** An average person laughs about 15 times a day. 
+- ⚡ **Fun fact:** In a year approximately 900 million trees are cut down to make the raw materials needed for American pulp mills and paper. 
