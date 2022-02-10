@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, a man spends about five months of his life shaving. 
+- ⚡ **Fun fact:** Many years ago, a fish was caught that was 33 inches long and seemed to be heavier than it should. When they cut the fish, fishermen found a full of bottle of ale inside it. 
