@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There is a place called Hell, Michigan. It is about 50 miles from Detroit, Michigan. 
+- ⚡ **Fun fact:** Cheetahs are the fastest land animal and can reach speeds up to 72mph. 
