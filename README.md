@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average US worker toils for two hours and 47 minutes of each working day just to pay income tax. Indeed, the average American pays more in taxes than for food, clothing and shelter put together. 
+- ⚡ **Fun fact:** The reason why the Mexican sombrero hat is so wide is to provide shade for the entire body. 
