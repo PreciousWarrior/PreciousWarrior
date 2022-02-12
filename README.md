@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1890, Scott Paper produced the first toilet paper to be available on a roll. 
+- ⚡ **Fun fact:** People have the tendency to chew the food on the side that they most often use their hand. 
