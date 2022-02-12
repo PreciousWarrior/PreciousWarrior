@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Only 4% of babies are born on their actual due date. 
+- ⚡ **Fun fact:** The loudest insect in the world is the male cicadas, which are like crickets. When they rub their abdomens, the sound made can be heard from 1300 feet. 
