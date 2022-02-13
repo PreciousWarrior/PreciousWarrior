@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1980, a Las Vegas hospital suspended workers for betting on when patients would die. 
+- ⚡ **Fun fact:** There is a certain type of Hawk Moth caterpillar from Brazil that inflates its thorax, which makes its head look like a head of a snake when it feels it is in danger or alarmed. 
