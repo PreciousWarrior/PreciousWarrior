@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Chihuahua Desert is the largest desert in North America, and is over 200,000 square miles. 
+- ⚡ **Fun fact:** The giant squid is the largest animal without a backbone. 
