@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There is a certain type of Hawk Moth caterpillar from Brazil that inflates its thorax, which makes its head look like a head of a snake when it feels it is in danger or alarmed. 
+- ⚡ **Fun fact:** Snails eat with a rasping mouth called a "radula," which has thousands of teeth. 
