@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The most popular vacation destinations for Americans in 1956 was Niagara Falls. 
+- ⚡ **Fun fact:** A common name for pincurls is also spitcurls because woman sometimes wet their hair with their saliva before curling it. 
