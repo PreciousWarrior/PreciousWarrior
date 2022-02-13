@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The sap of a banana plant leaves serious stains on hands and clothes that is extremely hard to remove. 
+- ⚡ **Fun fact:** The state that grows the most cranberries is Wisconsin. More than 300 million pounds of cranberries are grown in Wisconsin. 
