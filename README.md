@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A Connecticut Toy maker, Herobuilders, sells action figures of President George W. Bush, Islamic militant Osama bin Laden, New York Mayor Rudolph Giuliani and British Prime Minister Tony Blair, which are all major figures tied to the September 11, 2001 WTC attacks. 
+- ⚡ **Fun fact:** Nazi leader Adolf Hitler had only one testicle. 
