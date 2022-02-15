@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In a day, a mature oak tree can draw approximately 50 gallons of water. 
+- ⚡ **Fun fact:** The average US worker toils for two hours and 47 minutes of each working day just to pay income tax. Indeed, the average American pays more in taxes than for food, clothing and shelter put together. 
