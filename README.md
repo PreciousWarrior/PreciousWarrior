@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The term "the whole 9 yards" came from W.W.II fighter pilots in the South Pacific. When arming their airplanes on the ground, the .50 caliber machine gun ammo belts measured exactly 27 feet, before being loaded into the fuselage. If the pilots fired all their ammo at a target, it got "the whole 9 yards.". 
+- ⚡ **Fun fact:** A surfer once sued another surfer for "stealing his wave." The case was thrown out because the court was unable to put a price on "pain and suffering" endured by the surfer watching someone else ride "his" wave. 
