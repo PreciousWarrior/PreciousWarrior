@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Coca Cola company offers more than 300 different beverages. 
+- ⚡ **Fun fact:** The only two days of the year in which there are no professional sportsgames (MLB, NBA, NHL, or NFL) are the day before and the day after theMajorLeague All-Star Game.. 
