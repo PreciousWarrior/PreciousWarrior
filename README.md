@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Cimeti?re du P?re Lachaise located in Paris is the most visited cemetery in the world. The cemetery opened in 1805 and has over one million people buried there, including rock star Jim Morrison. 
+- ⚡ **Fun fact:** Parts of the Dead Sea Scrolls appeared for sale in the June 1, 1954 issue of the Wall Street Journal. 
