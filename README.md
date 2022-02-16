@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first World Series baseball playoffs occurred in 1903. 
+- ⚡ **Fun fact:** Singer Michael Jackson owns the rights to the South Carolina State anthem. 
