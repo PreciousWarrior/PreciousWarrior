@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Termites do more damage in the U.S. ever year than all the fires, storms and earthquakes combined. They do an average of $750 million in damage annually. 
+- ⚡ **Fun fact:** A barnacle has the largest penis of any other animal in relation to its size. 
