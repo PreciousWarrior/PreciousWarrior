@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Parts of the Dead Sea Scrolls appeared for sale in the June 1, 1954 issue of the Wall Street Journal. 
+- ⚡ **Fun fact:** In total, Americans eat more than 45 billion sandwiches each year, while sales of custom-made sandwiches are rising 15 percent per year. 
