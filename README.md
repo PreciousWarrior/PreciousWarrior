@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Every single hamster in the United States today comes from a single litter captured in Syria in 1930. 
+- ⚡ **Fun fact:** An acre of trees can remove about 13 tons of dust and gases every year from the surrounding environment. 
