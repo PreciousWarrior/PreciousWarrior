@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The vegetable that is eaten most by Americans is potatoes. On average, a person eats about 140 pounds of potatoes annually. 
+- ⚡ **Fun fact:** Scallops have approximately 100 eyes around the edge of its shell. 
