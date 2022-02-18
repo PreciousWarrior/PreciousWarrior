@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the United States, six tubs of Cool Whip, a brand of whipping cream, are sold every second. 
+- ⚡ **Fun fact:** In 1894 the first big Coke sign was found on the side of a building located in Cartersville, Georgia, and still exists today. 
