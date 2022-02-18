@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average ice berg weighs 20,000,000 tons. 
+- ⚡ **Fun fact:** The longest chapter in the Bible is Psalm 119, which is 176 verses. 
