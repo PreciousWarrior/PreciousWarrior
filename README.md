@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Chameleons can move their eyes independently. One eye can be looking forward and one eye backward at the same time. 
+- ⚡ **Fun fact:** It is estimated that over fifty-four million people died in World War II, which was the bloodiest war in history. 
