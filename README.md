@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Canada, men are three times more likely than women to have seen a doctor in the last year. 
+- ⚡ **Fun fact:** The Mount Horeb Mustard Museum which is located in Wisconsin has the biggest collection of prepared mustards. They have approximately 4,000 different jars and tubes from all over the world. 
