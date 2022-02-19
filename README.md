@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Mount Horeb Mustard Museum which is located in Wisconsin has the biggest collection of prepared mustards. They have approximately 4,000 different jars and tubes from all over the world. 
+- ⚡ **Fun fact:** There was a post office on the Russian space station Mir. Visiting cosmonauts would use unique postal "markers" to stamp envelopes and other items as having flown aboard the Mir space station. 
