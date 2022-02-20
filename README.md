@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The smallest frog is the "Brazilian baby frog", which is smaller than a dime. 
+- ⚡ **Fun fact:** The most frequent season for most suicides to occur is in the spring. The winter months have the lowest number of suicides. 
