@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In America, approximately 20% of children between the ages of 2 - 7 have televisions in their rooms. 
+- ⚡ **Fun fact:** After the "Popeye" comic strip was launched in 1931, spinach consumption went up by thirty-three percent in the United States. 
