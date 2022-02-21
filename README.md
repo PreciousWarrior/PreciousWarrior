@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A snake charmer in Bangladesh once found 3,500 poisonous cobras and their eggs hidden underneath the floors of two suburban homes. 
+- ⚡ **Fun fact:** The only predator that polar bears have are humans. 
