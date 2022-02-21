@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** St. Patrick explained the Holy Trinity to King Laoghaire, using the shamrock to illustrate the trinity. 
+- ⚡ **Fun fact:** Eating parsley after eating an onion can help in getting rid of onion breath. 
