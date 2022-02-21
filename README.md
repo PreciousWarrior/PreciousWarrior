@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** An apple, potato, and onion all taste the same if you eat them with your nose plugged. They all taste sweet. 
+- ⚡ **Fun fact:** The silkworm moth has lost the ability to fly ever since it has been domesticated. 
