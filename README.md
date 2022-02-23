@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Early hockey games allowed as many as 30 players a side on the ice. 
+- ⚡ **Fun fact:** People whose mouth has a narrow roof are more likely to snore. This is because they have less oxygen going through their nose. 
