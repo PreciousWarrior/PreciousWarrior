@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Each year approximately half of billions dollars is spent on bubble gum by the kids in North America. 
+- ⚡ **Fun fact:** Namco, who are the manufacturers of Pac Man the video game, has estimated that the original arcade game has been played over 10 billion times by individuals. 
