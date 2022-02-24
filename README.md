@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The word racecar and kayak are the same whether they are read left to right or right to left. 
+- ⚡ **Fun fact:** In 1980, a Las Vegas hospital suspended workers for betting on when patients would die. 
