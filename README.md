@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1980, a Las Vegas hospital suspended workers for betting on when patients would die. 
+- ⚡ **Fun fact:** Our eyes are always the same size from birth, but our nose and ears. never stop growing. 
