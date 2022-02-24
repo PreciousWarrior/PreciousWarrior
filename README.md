@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** By law, information collected in a U.S. census must remain confidential for seventy-two years. 
+- ⚡ **Fun fact:** Copper is the second most used metal in the world.. 
