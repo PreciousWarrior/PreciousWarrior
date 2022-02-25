@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The most popular treat for Halloween trick-or-treaters are candy bars with Snickers being the most popular. 
+- ⚡ **Fun fact:** Scientists have discovered that the longer the ring finger is in boys the less chance they have of having a heart attack. 
