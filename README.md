@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Alexander the Great made his troops eat onions as he believed it would prove their vitality. 
+- ⚡ **Fun fact:** A study concludes that kids who snore do poorly in school. 
