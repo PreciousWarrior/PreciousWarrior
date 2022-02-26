@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** During the female orgasm, endorphines are released, which are powerful painkillers. So headaches are in fact a bad excuse not to have sex. 
+- ⚡ **Fun fact:** Any animal that has skin hair or fur can get dandruff, but in animals it is called "dander.". 
