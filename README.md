@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Before air conditioning was invented, white cotton slipcovers were put on furniture to keep the air cool.. 
+- ⚡ **Fun fact:** Gases that build up in your large intestine cause flatulence. It usually takes about 30 to 45 minutes for these gases to pass through your system. 
