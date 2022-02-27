@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Studies show that couples that smoke during the time of conception have a higher chance of having a girl compared to couples that do not smoke. 
+- ⚡ **Fun fact:** There were approximately 2,228 people on board the Titanic when it sank. Of this, only 706 people survived. 
