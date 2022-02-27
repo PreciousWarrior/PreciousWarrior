@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Japanese research has concluded that moderate drinking can boost IQ levels. 
+- ⚡ **Fun fact:** In the U.S. there are approximately 65.8 million cats. 
