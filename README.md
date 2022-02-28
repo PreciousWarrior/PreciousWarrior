@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The largest volcano known is on Mars: Olympus Mons, 370 miles wide and 79,000 feet high, is almost three times higher than Mount Everest. 
+- ⚡ **Fun fact:** On average, the American household consumes six pounds of peanut butter annually. 
