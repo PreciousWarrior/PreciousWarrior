@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Bhutan issued a stamp in 1973 that looked like a record and actually would play the Bhutanese national anthem if placed on a record player. 
+- ⚡ **Fun fact:** The movie that grossed the most money that was adapted from a T.V. cartoon is Scooby-Doo. 
