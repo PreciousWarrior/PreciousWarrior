@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On September 3, 1970, a hailstone was found in Coffeyville, Kansas that was eight inches in diameter and weighed 1.67 pounds.. 
+- ⚡ **Fun fact:** The story of Mulan had been told in China for almost 1,500 years before Disney decided to make it into an animated movie. 
