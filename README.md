@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The largest earthworm on record was found in South Africa and measured 22 feet. 
+- ⚡ **Fun fact:** Back in 1953, it took 27 hours to make one Marshmallow Peep. Now it takes only six minutes. 
