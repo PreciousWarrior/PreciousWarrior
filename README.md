@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Jewelers Tiffany - ⚡ **Fun fact:** The reason why some people get a cowlick is because the growth of their hair is in a spiral pattern, which causes the hair to either stand straight up, or goes to a certain angle.  Co., based in New York, are responsible for making the Super Bowl trophy. 
+- ⚡ **Fun fact:** The flatulation from domesticated cows produce about 30% of the methane on this planet. 
