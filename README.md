@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average ear grows 0.01 inches in length every year. 
+- ⚡ **Fun fact:** The last thing Elvis Presley ate before he died was four scoops of ice cream and 6 chocolate chip cookies. 
