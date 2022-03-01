@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In one night, an adult hippopotamus eats approximately 150 pounds of grass. 
+- ⚡ **Fun fact:** The largest earthworm on record was found in South Africa and measured 22 feet. 
