@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In a year approximately 900 million trees are cut down to make the raw materials needed for American pulp mills and paper. 
+- ⚡ **Fun fact:** Approximately 25,000 workers died during the building of the Panama Canal and approximately 20,000 of them contracted malaria and yellow fever. 
