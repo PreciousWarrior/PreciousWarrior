@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Greece, the climate is so warm that many of the cinemas do not even have roofs. 
+- ⚡ **Fun fact:** Former U.S. President William Taft converted the White House stable into a four car garage in 1909. 
