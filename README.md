@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Niagara Falls actually stopped flowing back in 1848 for about 20 hours because there was ice that was blocking the Niagara River. 
+- ⚡ **Fun fact:** Canada is the only country not to win a gold medal in the Summer Olympic games while hosting the event. 
