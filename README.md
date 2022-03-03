@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the 1920's, Q-Tips were invented by Leo Gerstenzang who got the idea after watching his wife clean their baby's ears with cotton stuck onto a toothpick.. 
+- ⚡ **Fun fact:** The King Cobra has enough venom in its bite that it can kill up to 13 adults. 
