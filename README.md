@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Instead of a birthday cake, many children in Russia are given a birthday pie. 
+- ⚡ **Fun fact:** Storks were a symbol of fertility in Europe and were considered to bring good luck. 
