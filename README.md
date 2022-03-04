@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Chinese politician Mao Zedong refused to ever brush his teeth and instead just washed his mouth with tea. 
+- ⚡ **Fun fact:** The first president to ride in an airplane was Franklin Roosevelt. 
