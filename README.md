@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Bananas contain a natural chemical which can make a person happy. This same chemical is found in Prozac. 
+- ⚡ **Fun fact:** Throughout the South, peanuts were known as "Monkey Nuts," and "Goober peas," before the civil war. 
