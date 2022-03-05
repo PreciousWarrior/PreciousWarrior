@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first African-American to receive a Nobel Peace Prize was Ralph J. Bunche in 1950. 
+- ⚡ **Fun fact:** On average, the life span of an American dollar bill is eighteen months. 
