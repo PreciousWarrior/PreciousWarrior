@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Approximately 71% of American chocolate eaters prefer to eat milk chocolate. 
+- ⚡ **Fun fact:** Wheel of Fortune star Vanna White holds the record for putting her hands together approximately 140,000 times to clap. 
