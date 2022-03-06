@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Orville Wright, a pilot, was involved in the first aircraft accident. His passenger, a Frenchman, was killed.. 
+- ⚡ **Fun fact:** Mr. Butts invented the game SCRABBLE. The game was originally called "Criss Cross Words.". 
