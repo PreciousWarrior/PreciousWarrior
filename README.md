@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Billiards used to be so popular at one time that cigarette cards were issued featuring players. 
+- ⚡ **Fun fact:** The biggest disco ball in the world has a diameter of 2.41 meters and 137.89 kilograms. It also has 6,900 mirror squares on it. 
