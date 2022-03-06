@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The microwave was invented after a researcher walked by a radar tube and a chocolate bar melted in his pocket. 
+- ⚡ **Fun fact:** John Van Wormer invented paper milk cartons after dropping a bottle of milk one morning. The bottle broke spilling the milk everywhere. That annoyance was enough for Van Wormer to come up with the idea.. 
