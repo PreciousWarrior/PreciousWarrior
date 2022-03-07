@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Atlantic salmon can jump as high as 4.5 meters out of the water. 
+- ⚡ **Fun fact:** When a polar bear cub is born, it can not see or hear. It takes approximately a month for the cub to start to see and hear. 
