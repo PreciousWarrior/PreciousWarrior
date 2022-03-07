@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The word "super" to a beekeeper refers to the hive box where the honey is stored. 
+- ⚡ **Fun fact:** It takes approximately 12 years for Jupiter to orbit the sun. 
