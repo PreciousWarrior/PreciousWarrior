@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Before air conditioning was invented, white cotton slipcovers were put on furniture to keep the air cool.. 
+- ⚡ **Fun fact:** The colours yellow, red, and orange are used in fast food restaraunts because those are the colours that stimulate hunger. 
