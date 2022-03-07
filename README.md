@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** 850 peanuts are needed to make an 18 oz. jar of peanut butter. 
+- ⚡ **Fun fact:** If all the cars from the U.S. were taken and lined up from bumper to bumper, there would be enough cars to go to the moon from earth and back.. 
