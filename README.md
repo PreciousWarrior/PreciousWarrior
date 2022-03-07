@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** 215 jeans can be made with one bale of cotton. 
+- ⚡ **Fun fact:** Due to the shortages of lead and metals during World War II, toothpaste was packaged in plastic tubes and have been ever since. 
