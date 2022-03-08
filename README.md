@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A person will burn 7 percent more calories if they walk on hard dirt compared to pavement. 
+- ⚡ **Fun fact:** Women who are romance novel readers are reported to make love 74% more often with their partners than women who do not read romance novels.. 
