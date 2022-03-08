@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The reason why bubble gum is pink is because the inventor only had pink colouring left. Ever since then, the colour of bubble gum has been predominantly pink. 
+- ⚡ **Fun fact:** The American Airlines Center in Dallas has more toilets per capita than any other sports and entertainment venue in the country. 
