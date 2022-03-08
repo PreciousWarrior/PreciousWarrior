@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The aorta, which is largest artery located in the body, is about the diameter of a garden hose. 
+- ⚡ **Fun fact:** A lifespan of an eyelash is approximately 150 days. 
