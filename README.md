@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Every 238 years, the orbits of Neptune and Pluto change making Neptune at times the farthest planet from the sun. 
+- ⚡ **Fun fact:** The only woman that has appeared on a U.S. paper currency is Martha Washington. 
