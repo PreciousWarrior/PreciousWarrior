@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Kraft company produces enough Cool Whip, a brand of whipping cream, in one year to fill the entire Grand Canyon. 
+- ⚡ **Fun fact:** Americans collectively eat one hundred pounds of chocolate every second. 
