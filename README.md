@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Quebec, Canada, an old law states that margarine must be a different colour than butter. 
+- ⚡ **Fun fact:** In Cleveland, Ohio, it's illegal to catch mice without a huntinglicense.. 
