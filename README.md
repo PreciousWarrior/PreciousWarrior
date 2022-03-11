@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** According to legend, tea originated in China when tea leaves accidentally blew into a pot of boiling water. 
+- ⚡ **Fun fact:** The name Jeep came from the abbreviation used in the army for the "General Purpose" vehicle, G.P. 
