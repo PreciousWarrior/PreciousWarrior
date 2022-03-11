@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The oldest inhabited house in Scotland is the Traquair Castle. The castle has had 27 kings as visitors. 
+- ⚡ **Fun fact:** Some snails live on branches in trees. 
