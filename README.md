@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Between 12%-15% of the population is left-handed. 
+- ⚡ **Fun fact:** A mother hen turns her egg approximately 50 times in a day. This is so the yolk does not stick to the shell. 
