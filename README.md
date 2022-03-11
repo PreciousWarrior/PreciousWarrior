@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In a day, kids in the U.S. that are between the ages of 2 - 8 spend 28 minutes of their time coloring. 
+- ⚡ **Fun fact:** A group of people that are hired to clap at a performance are called a claque. 
