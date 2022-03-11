@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Some of the titles that were considered for the hit T.V. show "Friends" were Six Of One, Across the Hall, and Insomnia Cafe. 
+- ⚡ **Fun fact:** There are two credit cards for every person in the United States. 
