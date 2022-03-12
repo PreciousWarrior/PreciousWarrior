@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first domain name ever registered was Symbolics.com on March 15, 1985.. 
+- ⚡ **Fun fact:** Bill Bowerman, the co-founder of the shoe company Nike, got his first shoe idea after staring at a waffle iron. This gave him the idea of using squared spikes to make the shoes lighter. 
