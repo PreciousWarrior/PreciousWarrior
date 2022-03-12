@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In a survey conducted in 2000 by Kimberly-Clark, it was found that men prefer to fold their toilet paper, and women like to wad it. 
+- ⚡ **Fun fact:** Baseball games between college teams have been played since the Civil War. 
