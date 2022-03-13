@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Germany produces more than 5,000 varieties of beer and has about 1,300 breweries in country. 
+- ⚡ **Fun fact:** The average amount of time spent kissing for a person in a lifetime is 20,160 minutes. 
