@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Although the outsides of a bone are hard, they are generally light and soft inside. They are about 75% water. 
+- ⚡ **Fun fact:** 66% of wedding cards are hand delivered by people. 
