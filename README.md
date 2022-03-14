@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1999, a three headed turtle was discovered by Lin Chi-Fa in his pond in Southern Taiwan. 
+- ⚡ **Fun fact:** There are more than 640 muscles in the human body. 
