@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There is an area located off the south-eastern Atlantic coast of the United States called the "Bermuda Triangle." It is known for a high rate of unexplained losses of ships, small boats, and aircraft, which has led some people to believe that this triangle has supernatural powers. 
+- ⚡ **Fun fact:** There are some bananas that are red instead of yellow. 
