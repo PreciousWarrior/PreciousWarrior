@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Witchcraft means "Craft of the Wise Ones.". 
+- ⚡ **Fun fact:** It's possible to lead a cow upstairs...but not downstairs.. 
