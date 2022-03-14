@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** About 70 percent of Americans who go to college do it just to make more money. 
+- ⚡ **Fun fact:** The lifespan of a firefly is about seven days. During these days, they are busy trying to find a mate. 
