@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Russian I.M. Chisov survived a 21,980 plunge out of a plane with no parachute. He landed on the steep side of a snow-covered mountain with only a fractured pelvis and slight concussion. 
+- ⚡ **Fun fact:** Percentage of Africa that is wilderness: 28%. Percentage of North America that is wilderness: 38%. 
