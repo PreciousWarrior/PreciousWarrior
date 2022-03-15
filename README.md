@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average life expectancy of an ant is about 90 days. 
+- ⚡ **Fun fact:** Alexandre Gustave Eiffel, the man who designed the Eiffel Tower, also designed the inner structure of the Statue of Liberty in New York Harbour. 
