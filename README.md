@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Fine-grained volcanic ash can be found as an ingredient in some toothpaste. 
+- ⚡ **Fun fact:** Finland is also known as "the land of of the thousand lakes," because of the over 188,000 lakes found in this country. 
