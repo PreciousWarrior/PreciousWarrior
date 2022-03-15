@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** David McConnell started the California Perfume Company (CPC) in 1886. Today the company is known as Avon, which he named after his favorite playwright William Shakespeare, and Stratford on Avon. 
+- ⚡ **Fun fact:** The colours yellow, red, and orange are used in fast food restaraunts because those are the colours that stimulate hunger. 
