@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Before soccer referees started using whistles in 1878, they used to rely on waving a handkerchief. 
+- ⚡ **Fun fact:** David McConnell started the California Perfume Company (CPC) in 1886. Today the company is known as Avon, which he named after his favorite playwright William Shakespeare, and Stratford on Avon. 
