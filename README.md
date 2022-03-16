@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** After the Eiffel Tower was built, one person was killed during the installation of the lifts. No one was killed during the actual construction of the tower. 
+- ⚡ **Fun fact:** There are 54 bones in your hands including the wrists. 
