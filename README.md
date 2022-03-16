@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average life span of a peasant during the medieval ages was 25 years. 
+- ⚡ **Fun fact:** On average, you would need 12.5 gallons of milk to make one gallon of ice cream. 
