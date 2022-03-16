@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The largest number of children born to one woman, who was a Russian peasant is 69. 
+- ⚡ **Fun fact:** To make one pound of whole milk cheese, 10 pounds of whole milk is needed. 
