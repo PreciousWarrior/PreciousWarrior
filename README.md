@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the United States, the most frequent month for a tornado to occur is in May.. 
+- ⚡ **Fun fact:** A top freestyle swimmer achieves a speed of only 4 miles per hour. Fish, in contrast, have been clocked at 68 mph. 
