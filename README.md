@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** American President Calvin Coolidge (1923-1929) used to like Vaseline being rubbed on his head while he ate breakfast in bed. 
+- ⚡ **Fun fact:** In China, there is a species of yam that is used to make a dye. 
