@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The reason why your nose gets runny when you are crying is because the tears from the eyes drain into the nose. 
+- ⚡ **Fun fact:** The windiest place in the world is Mount Washington, New Hampshire, USA. The highest wind was on April 12, 1934 when it reached 231 mph.. 
