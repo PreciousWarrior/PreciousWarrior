@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Finland has 187,888 lakes and 179,584 islands. 
+- ⚡ **Fun fact:** It takes the Hubble telescope about 97 minutes to complete an orbit of the Earth. On average, the Hubble uses the equivilent amount of energy as 30 household light bulbs to complete an orbit.. 
