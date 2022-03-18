@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Research has indicated that indoor pollution is 10 times more toxic than outdoor pollution. 
+- ⚡ **Fun fact:** Play-Doh was introduced in 1956 by Hasbro Inc. The only color availabe was an off white, and it came in one size which a one and a half pound can. 
