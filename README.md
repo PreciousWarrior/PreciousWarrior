@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Miami, Florida, roosting vultures have taken to snatching poodles from rooftop patios. 
+- ⚡ **Fun fact:** In Denmark, people eat about 36 pounds of candy a year. The highest consumption of candy of any country. 
