@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Ed Cox from San Francisco invented the pot scrubbing S.O.S. pads in 1917. His wife came up with the name, which stands for "Save Our Saucepans.". 
+- ⚡ **Fun fact:** When a porcupine is born, its quills are soft and mostly white, but harden within hours. 
