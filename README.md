@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Ontario, an average household income of a golfer is greater than $60,000. 
+- ⚡ **Fun fact:** The only poisonous birds in the world are the three species of Pitohui. The Hooded Pitohui from Papua New Guinea is the most deadliest out of the three. 
