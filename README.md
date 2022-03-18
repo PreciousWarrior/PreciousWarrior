@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** During World War II, condoms were used to cover rifle barrels from being damaged by salt water as the soldiers swam to shore. 
+- ⚡ **Fun fact:** The reason why your nose gets runny when you are crying is because the tears from the eyes drain into the nose. 
