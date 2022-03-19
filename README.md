@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** When a predator is chasing an impala, a type of antelope, it runs in a zig zag formation jumping as high as three metres. 
+- ⚡ **Fun fact:** Vikings, after killing their enemies, used their skulls as drinking vessels. 
