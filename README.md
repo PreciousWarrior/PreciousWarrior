@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There are 50% more males that are left handed compared to females. 
+- ⚡ **Fun fact:** The sport Lacrosse was initially played by Native American Indians. They played the sport to prepare for war. 
