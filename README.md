@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1657, the first chocolate house was opened in London, England. The cost of chocolate was about 13 shillings per pound and was a drink that only the elite enjoyed. 
+- ⚡ **Fun fact:** Every eleven minutes in the U.S., a woman dies of breast cancer. 
