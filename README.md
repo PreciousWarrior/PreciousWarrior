@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Arabic numerals were not invented by Arabs, but were invented in India by the Hindus. 
+- ⚡ **Fun fact:** In 1865, the U.S. Secret Service was first established for the specific purpose to combat the counterfeiting of money. 
