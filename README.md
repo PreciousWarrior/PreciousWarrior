@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1865, the U.S. Secret Service was first established for the specific purpose to combat the counterfeiting of money. 
+- ⚡ **Fun fact:** Each Jelly Belly jelly belly bean has 4 calories. 
