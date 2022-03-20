@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Each Jelly Belly jelly belly bean has 4 calories. 
+- ⚡ **Fun fact:** The Central African raffia palm is known to have the longest leaves. The leaves can measure up to 82.5 feet long.. 
