@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** After 8 months, babies are more likely to get a diaper rash. 
+- ⚡ **Fun fact:** The first jet engine was invented by Frank Whittleof of England in 1930.. 
