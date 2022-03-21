@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the U.S., over one million gallons of cosmetics, drinks, and lotions are sold that contain aloe in them per year. 
+- ⚡ **Fun fact:** The first recipe for a lasagna type dish was found to be from a British cookbook in the 14th century. Therefore, Italians were not the first ones to come up with the popular dish as believed. 
