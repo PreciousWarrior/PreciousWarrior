@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the world, the United States and France have the most pet dogs. Approximately one out of every three families has a pet dog. Switzerland and Germany are the lowest only having one dog per every ten families. 
+- ⚡ **Fun fact:** Bananas contain a natural chemical which can make a person happy. This same chemical is found in Prozac. 
