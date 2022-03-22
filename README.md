@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Since 1950, over 230 million eggs of Silly Putty have been sold. 
+- ⚡ **Fun fact:** In 1905, Chapman and Skinner in San Francisco invented the first portable electric vacuum.. 
