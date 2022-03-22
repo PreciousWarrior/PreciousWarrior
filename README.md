@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Nylon is a man-made fibre that is made from coal and petroleum. 
+- ⚡ **Fun fact:** Amongst pre-schoolers, Caillou is the fastest-ever-growing television show and is seen in close to 97% of U.S. households. 
