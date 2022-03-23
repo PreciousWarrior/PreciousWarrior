@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Apples, not caffeine, are more efficient at waking you up in the morning. 
+- ⚡ **Fun fact:** In one day, a human sheds 10 billion skin flakes. This amounts to approximately two kilograms in a year. 
