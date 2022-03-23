@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Davao City, located at the Southern state of Philippines, is the largest city in the world in terms of area. 
+- ⚡ **Fun fact:** In the year 2000, there were approximately 11,000 injuries that were treated in a hospital in the U.S. that resulted from fireworks. 
