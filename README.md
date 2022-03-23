@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The seventeenth president of the United States, Andrew Johnson did not know how to read until he was 17 years old. 
+- ⚡ **Fun fact:** Rabbits can live up to ten years. 
