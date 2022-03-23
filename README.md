@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Each honeycomb in Honeycomb cereal has seven holes. 
+- ⚡ **Fun fact:** Deliberately infecting people with malaria has been used to cure different viral infections. The high fever will strengthen the immune system and fight the virus. In recent times this has been considered as a treatment to HIV. 
