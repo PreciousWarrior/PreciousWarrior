@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Mules have one horse and one donkey for a parent. 
+- ⚡ **Fun fact:** In ancient Egypt, the dung beetle symbolized eternal rebirth and the Sun God Khepri. 
