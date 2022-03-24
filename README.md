@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1961, Italian artist Piero Manzoni packed his feces in cans, signed and mounted them, and then sold them as art. 
+- ⚡ **Fun fact:** Teenage cosmetic surgeries nearly doubled in the USA between 1996 and 1998. 
