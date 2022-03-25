@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1391, China began producing toliet paper for use by its Emperors. 
+- ⚡ **Fun fact:** Prosopagnosia refers to the inability to identify people by their faces. In severe cased prosopagnosia a person may not be able to identify themselves in a mirror. 
