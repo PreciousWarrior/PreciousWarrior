@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Annually 7 million tons of textiles and clothing is thrown out. Out of this, only 12% is used again or recycled. 
+- ⚡ **Fun fact:** At the White House, president John Adams was said to be the first to display fireworks there. 
