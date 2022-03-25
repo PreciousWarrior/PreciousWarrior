@@ -11,4 +11,4 @@
 - 💬 **Ask me about** Javascript, Discord API, Linux
 - 📫 **How to reach me**: [i4l4p8xu1@relay.firefox.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** At the White House, president John Adams was said to be the first to display fireworks there. 
+- ⚡ **Fun fact:** A white tiger can only be born when both parents carry the gene for white colouring. 
