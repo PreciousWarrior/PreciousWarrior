@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There were no red colored M- ⚡ **Fun fact:** A turtle can breathe through its butt.. Ms from 1976 to 1987. 
+- ⚡ **Fun fact:** After the "Popeye" comic strip was launched in 1931, spinach consumption went up by thirty-three percent in the United States. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
