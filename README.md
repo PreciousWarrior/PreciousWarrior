@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Leaving the water running while brushing your teeth can waste four gallons of water in a minute. 
+- ⚡ **Fun fact:** The triangular shape that Toblerone chocolates are packaged in, is protected by law. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
