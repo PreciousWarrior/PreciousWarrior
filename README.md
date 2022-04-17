@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the U.S. 7 out of 10 homes use candles. 
+- ⚡ **Fun fact:** The papaya tree is known as "the medicinal tree" in some cultures because it?s seeds and leaves have been used as ingredients in different medicines. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
