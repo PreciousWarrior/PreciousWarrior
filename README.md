@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Popeye is 34 years old, weighs 158 lbs, and is 5 feet 6 inches tall. 
+- ⚡ **Fun fact:** The dromedary camel can drink as much as 100 litres of water in just 10 minutes. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
