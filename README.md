@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** When the Pez mint dispenser was first introduced it was meant to replace the activity of smoking. 
+- ⚡ **Fun fact:** On August 21st, 1911, someone stole the Mona Lisa, the most famous painting in the world, from the Louvre Museum. It was recovered two years later. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
