@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** One ragweed plant can release as many as a million grains of pollen in one day. 
+- ⚡ **Fun fact:** In 1886, Coca-cola was first served at a pharmacy in Atlanta, Georgia for only five cents a glass. A pharmacist named John Pemberton created the formula for Coca-cola. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
