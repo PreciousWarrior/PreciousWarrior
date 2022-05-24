@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1796, Napoleon was only 26 years old when he took command of the French Army of Italy. 
+- ⚡ **Fun fact:** The little circles of paper that are cut out after a paper has been punched by a hole puncher are called "chad.". 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
