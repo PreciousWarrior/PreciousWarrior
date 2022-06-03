@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Sears Tower consists of nine framed tubes, which connects nine skyscrapers as one building. 
+- ⚡ **Fun fact:** Ancient Egyptian women used to wear perfume cones made of wax that would melt in the heat letting out a nice fragrance. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
