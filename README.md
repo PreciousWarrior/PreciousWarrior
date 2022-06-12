@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The flea can jump 350 times its body length, that is like a 6 foot-tall human jumping the length of 7 football fields. 
+- ⚡ **Fun fact:** Actress Debra Winger helped to perform the voice of E.T. in the movie ?E.T. The Extra Terrestrial (1982).". 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
