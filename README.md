@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There was a book written fourteen years before the sinking of the Titanic happened titled "Futility" by Morgan Robertson. This book was remarkably similar to the tragedy that happened to the Titanic in 1912. 
+- ⚡ **Fun fact:** Abdul Kassam Ismael, Grand Vizier of Persia in the tenth century, carried his library with him wherever he went. Four hundred camels carried the 117,000 volumes. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
