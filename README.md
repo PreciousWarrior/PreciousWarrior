@@ -1,4 +1,4 @@
-### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px">
+### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
 - ⚡ **Fun fact:** Approximately 100,000 people get married in Las Vegas each year. 
