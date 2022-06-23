@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** William Taft who was the U.S. president between 1909-1913 once got stuck in the White House bathtub. 
+- ⚡ **Fun fact:** One of the steepest main streets in Canada is located in Saint John, New Brunswick. Over a distance of two blocks the street rises about 80 feet. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
