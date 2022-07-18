@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first American astronaut in space was Alan B. Shepard Jr. 
+- ⚡ **Fun fact:** Teflon was accidently discovered by scientist Dr. Roy Plunkett while he was conducting a coolant gas experiment in 1938. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
