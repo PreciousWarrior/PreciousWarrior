@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On May 9, 1999 approximately 600,000 gallons of whiskey flowed into the Kentucky River during a fire at Wild Turkey Distillery in Lawrenceburg. 
+- ⚡ **Fun fact:** The YKK that you see on zippers stands for Yoshida Kogyo Kabushiki Kaisha which is the name of the founder of the zipper manufacturing company in Japan. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
