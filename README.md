@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1972, a gorilla by the name of "Koko" was taught ASL (American Sign Language) for the deaf. By the year 2000, the gorilla could understand approximately 2,000 English words. 
+- ⚡ **Fun fact:** Manicuring the nails has been done by people for more than 4,000 years. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
