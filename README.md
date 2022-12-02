@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Ancient Egyptians used to think having facial hair was an indication of personal neglect. 
+- ⚡ **Fun fact:** Bernd Eilts, a German artist, turns dried cow manure into wall clocks and small sculptures. He is now expanding his business to include cow dung wrist watches. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
