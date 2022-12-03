@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** At just four years old Mozart was able to learn a piece of music in half an hour. 
+- ⚡ **Fun fact:** The green ring that is formed around the yolk of eggs that have been cooked too long is formed by the chemical reaction from the iron in the yolk and the sulphur in the white part of the egg. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
