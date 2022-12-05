@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** People over the age of fifty will start to lose their dislike for foods that taste bitter. 
+- ⚡ **Fun fact:** In the world, the United States and France have the most pet dogs. Approximately one out of every three families has a pet dog. Switzerland and Germany are the lowest only having one dog per every ten families. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
