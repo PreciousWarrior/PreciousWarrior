@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Approximately 10.5 gallons of water is used in a dishwasher. Washing the dishes by hand can use up to 20 gallons of water. 
+- ⚡ **Fun fact:** There were no red colored M- ⚡ **Fun fact:** Approximately 10.5 gallons of water is used in a dishwasher. Washing the dishes by hand can use up to 20 gallons of water. Ms from 1976 to 1987. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
