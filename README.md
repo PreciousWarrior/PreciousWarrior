@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The total volume of mail that went through the Canadian postal system in 1950 was 1,362,310,155 items. 
+- ⚡ **Fun fact:** There are mirrors on the moon. Astronauts left them so that laser beams could be bounced off of them from Earth. These beams help give us the distance to the moon give or take a few metres.. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
