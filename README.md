@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Pretzel snacks have been around for over 1300 years. A European monk invented the snack using used leftover bread dough. 
+- ⚡ **Fun fact:** The CN Tower located in Toronto, Ontario Canada took a total construction time of 40 months to complete at an original cost of $63 million. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
