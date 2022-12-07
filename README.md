@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Of all the restaurants that are opened, 90% of them fail in the first year. Of the remaining ones that survive, 90% of those fail in the second year. 
+- ⚡ **Fun fact:** In China, people eat a bar of chocolate for every 1,000 chocolate bars eaten by the British. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
