@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Mount Horeb Mustard Museum which is located in Wisconsin has the biggest collection of prepared mustards. They have approximately 4,000 different jars and tubes from all over the world. 
+- ⚡ **Fun fact:** The deepest mine in the world is the East Rand mine, which goes to a depth of about 3,585 metres. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
