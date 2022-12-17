@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 410 A.D. Alaric the Visigoth demanded that Rome give him three thousand pounds of pepper as ransom. 
+- ⚡ **Fun fact:** A Chinese Scientist discovered that the Earth is round during the Han Dynasty by measuring the sun and moon's path in the sky. He recorded this fact down in the imperial records but went unnoticed until it was unearthed recently but Chinese archaeologists.. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
