@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** ABBA got their name by taking the first letter from each of their names (Agnetha, Bjorn, Benny, Anni-frid.). 
+- ⚡ **Fun fact:** February 17th, 1930, was the first flight by a cow in an airplane. The milk that was produced by the cow during the flight was put into containers and parachuted over the city of St. Louis. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
