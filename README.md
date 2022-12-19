@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Canada, the $1 and $2 come in the form of coins. The $1 is nicknamed a "loonie" because it contains a loon on it and the $2 is nicknamed the "twonie" because it is the equivalent of two "loonies.". 
+- ⚡ **Fun fact:** The food that is digested in your stomach is called "chyme.". 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
