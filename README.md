@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** 898 tornadoes were recorded to have occurred in the United States in the year 2000.. 
+- ⚡ **Fun fact:** The deepest cave in the world is the "Lamprechtsofen-Vogelshacht" cave which can be found in Salzburg, Austria. The cave is 5,354 feet deep. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
