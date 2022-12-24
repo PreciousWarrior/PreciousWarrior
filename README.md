@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The snow leopard protects itself from extreme cold when it sleeps by wrapping its 3-foot-long tail around its nose. 
+- ⚡ **Fun fact:** In 1990, the largest watermelon ever grown was 262 pounds, by Bill Carson of Tennesse, USA. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
