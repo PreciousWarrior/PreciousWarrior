@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Smartest dogs: 1) Scottish border collie; 2) Poodle; 3) Golden retriever. 
+- ⚡ **Fun fact:** Edwin Armstrong invented FM radio in 1933. The first men to use FM radio to communicate with Earth from the moon's surface were named Edwin Aldrin and Neil Armstrong.. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
