@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The cartoon character Popeye was actually based on a real person named Frank "Rocky" Fiegel who was a tough guy who was quite similar to Popeye physically. 
+- ⚡ **Fun fact:** When Black Jack Ketchum was hung back in 1901 in Clayton New Mexico, the noose actually ended up taking his head off. The head had to be sewn back on so Black Jack could be buried properly. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
