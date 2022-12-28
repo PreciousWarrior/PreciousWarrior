@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Diabetes is the fourth leading cause of death in the U.S., accounting for about 180,000 deaths per year. 
+- ⚡ **Fun fact:** The sap of a banana plant leaves serious stains on hands and clothes that is extremely hard to remove. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
