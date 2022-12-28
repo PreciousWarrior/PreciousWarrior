@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The sap of a banana plant leaves serious stains on hands and clothes that is extremely hard to remove. 
+- ⚡ **Fun fact:** The first television show to show any portion of a toilet was on "Leave it to Beaver." After fighting for ten weeks to show the toilet, CBS would only allow the producers to show the toilet tank, and not the whole toilet. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
