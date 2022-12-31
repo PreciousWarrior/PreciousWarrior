@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A sneeze can travel as fast as one hundred miles per hour. 
+- ⚡ **Fun fact:** In 1755, the first Canadian post office opened in Halifax, Nova Scotia. The fist Deputy Postmaster General was American inventor Benjamin Franklin who was later dismissed for sympathizing with the American revolutionary cause. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
