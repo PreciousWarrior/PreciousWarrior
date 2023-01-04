@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The reason why tattoos do not vanish even though we shed our skin is because the dye is injected deeper into the dermis part of the skin. It is only the epidermis that we shed. 
+- ⚡ **Fun fact:** Fat is important for the development of children and normal growth. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
