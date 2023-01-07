@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first modern toothbrush was invented in China. Its bristles came from hogs hair or the mane of a horse that were then put into ivory handles. 
+- ⚡ **Fun fact:** The longest fangs of a snake are found on the Gaboon Viper (Bitis gabonica), and can reach over 2 inches in length. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
