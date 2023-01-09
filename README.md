@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1997, the record for the highest skydive by a dog at 4,572 feet was established by a dog named Brutus. 
+- ⚡ **Fun fact:** The citrus soda "7 UP" was created in 1929. The original name of the popular drink was "Bib-Label Lithiated Lemon-Lime Soda", but it got changed to "7 UP.". 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
