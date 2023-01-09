@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Popsicle was invented by 11 year-old Frank Epperson in 1905. He left his drink outside with a stir stick in it and he noticed that it had frozen. He applied for a patent in 1923 and named it "Epsicle." The name was later changed to Popsicle. 
+- ⚡ **Fun fact:** Ancient Egyptians kissed with their noses instead of with their lips. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
