@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** People that suffer from gum disease are twice as likely to have a stroke or heart attack. 
+- ⚡ **Fun fact:** The most popular ethnic food in the United States is Italian food. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
