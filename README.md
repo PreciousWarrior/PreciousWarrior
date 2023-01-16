@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There was a 19th century Native American tribal chief who went under the name, "Not Able to Fornicate.". 
+- ⚡ **Fun fact:** The book "Little Red Riding Hood" was banned in 1990 by two school districts in California. They did this because in the book there was a picture of a basket that had a bottle of wine in it. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
