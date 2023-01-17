@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The cruise liner, Queen Elizabeth II, moves only six inches for each gallon of diesel that it burns. 
+- ⚡ **Fun fact:** Wherever a person is standing in the state of Michigan in the United States, they are within 85 miles of one of the Great Lakes. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
