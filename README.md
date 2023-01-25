@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Macadamia nuts are not sold in their shells because it takes 300 pounds per square inch of pressure to break the shell. 
+- ⚡ **Fun fact:** All the Krispy Kreme donut stores collectively could make a doughnut stack as high as the Empire State Building in only 2 minutes. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
