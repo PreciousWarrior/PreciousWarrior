@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Food and Drug Administration says the most common injury from cosmetics comes from scratching the eye with a mascara wand. 
+- ⚡ **Fun fact:** In the year 2000, there were approximately 11,000 injuries that were treated in a hospital in the U.S. that resulted from fireworks. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
