@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Tycho Brahe, a 16th century astronomer, lost his nose in a duel with one of his students over a mathematical computation. He wore a silver replacement nose for the rest of his life. 
+- ⚡ **Fun fact:** Kissing can aid in reducing tooth decay. This is because the extra saliva helps in keeping the mouth clean. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
