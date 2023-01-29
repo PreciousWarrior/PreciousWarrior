@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the summer of 1858, the smell of the sewage in the Thames River in London was so bad that the Members of Parliament had to leave from the chamber of the House of Commons. This was a result of two million people dumping all their sewage into the river. 
+- ⚡ **Fun fact:** When Scott Paper Co. first started manufacturing toilet paper they did not put their name on the product because of embarrassment. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
