@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The company "Sony" was originally called "Totsuken." They felt the name "Sony" would be easier to pronounce. The name was invented by a cross between the name "sonus" and "sonny." The name sound and sonic are derived. Sonny was used to represent a young man or boy, which would show a energetic young company. 
+- ⚡ **Fun fact:** The founder of JC Penny had the middle name of Cash. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
