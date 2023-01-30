@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** William Taft who was the U.S. president between 1909-1913 once got stuck in the White House bathtub. 
+- ⚡ **Fun fact:** Tropical rainforests cover about 7% of the Earth and receive over 80 inches of rain every year. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
