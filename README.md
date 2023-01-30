@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Kiwis are the only known bird to have nostrils located at the tip of their beak. 
+- ⚡ **Fun fact:** Humans are born with 300 bones in their body, however when a person reaches adulthood they only have 206 bones. This occurs because many of them join together to make a single bone. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
