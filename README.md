@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the 1920's, Q-Tips were invented by Leo Gerstenzang who got the idea after watching his wife clean their baby's ears with cotton stuck onto a toothpick.. 
+- ⚡ **Fun fact:** In a day, an elephant can drink 80 gallons of water. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
