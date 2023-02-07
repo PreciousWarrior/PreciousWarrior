@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Frisbee got its name from William Russel Frisbee, who was a pie baker. He used to sell his pies in a thin tin pan, which had Frisbee written on it. When Walter Frederick Morrison thought of the idea of making saucer like disks to play catch, he visited the campus of Yale and noticed people there were using the pie pan to play catch so he therefore renamed his invention to Frisbee. 
+- ⚡ **Fun fact:** In 2001, the five most valuable brand names in order were Coca-Cola, Microsoft, IBM, GE, and Nokia. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
