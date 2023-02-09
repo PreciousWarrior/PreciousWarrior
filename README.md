@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Alexander Graham Bell, the inventor of the telephone, never telephoned his wife or mother because they were both deaf. 
+- ⚡ **Fun fact:** Pluto was discovered on February 10, 1930 by Clyde Tombaugh. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
