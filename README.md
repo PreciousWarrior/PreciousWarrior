@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On September 9, 1950 dubbed laughter was used for the first time on television. It was used for the sitcom "The Hank McCune Show.". 
+- ⚡ **Fun fact:** Of married couples, 70% of men and 60% of women have cheated on their spouse. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
