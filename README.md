@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In a year, there are 60,000 trampoline injuries that occur in the U.S. 
+- ⚡ **Fun fact:** In ancient Greece, throwing an apple to a girl was a way to propose for marriage.. If the girl caught it, that would mean she accepts. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
