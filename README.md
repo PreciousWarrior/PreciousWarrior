@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The blue whale is the loudest animal on the earth. Its whistle can reach up to 188 decibels. 
+- ⚡ **Fun fact:** Every year, surgical tools are left in approximately 1,500 patients in the USA. Fatter patients are more prone to having a surgical tool left inside of them due to the additional amount of space in their bodies. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
