@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Only two people signed the Declaration of Independence on July 4th, JohnHancock and Charles Thomson. Most of the rest signed on August 2, butthe last signature wasn't added until 5 years later.. 
+- ⚡ **Fun fact:** Used in art the word "sfumato" refers to the subtle blending of an outline by gradually blending one tone into another. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
