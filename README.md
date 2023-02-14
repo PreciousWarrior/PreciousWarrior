@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** St. Patrick never really drove out any snakes from Ireland. This story was an analogy of how he drove paganism out of Ireland. 
+- ⚡ **Fun fact:** There are more than 50 different types of pumpkins. Some of them have names such as Munchkin, Funny Face, and Spooktacular. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
