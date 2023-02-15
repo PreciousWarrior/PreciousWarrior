@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** An elephant in the wild can eat anywhere from 100 - 1000 pounds of vegetation in a 16 hour period. 
+- ⚡ **Fun fact:** The first fashion house to be set up was in 1858 by Charles Worth. He opened his store in Paris with the idea of having pre-made gowns presented on models to his customers. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
