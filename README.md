@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The largest shopping mall in the world is the West Edmonton Mall located in Edmonton, Alberta, Canada. 
+- ⚡ **Fun fact:** The Ancient Greek women made a type of cheek blush by painting their cheeks with herbal pastes which was made out of crushed berries and seeds. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
