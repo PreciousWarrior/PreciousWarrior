@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** U.S. bills are 2.61 inches wide, 6.14 inches long, and are .0043 inches thick and weigh 1 gram. 
+- ⚡ **Fun fact:** A seagull can drink salt water because it has special glands that filter out the salt. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
