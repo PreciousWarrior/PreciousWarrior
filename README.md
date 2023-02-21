@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Canada, men are three times more likely than women to have seen a doctor in the last year. 
+- ⚡ **Fun fact:** Ivory bar soap floating was a mistake. They had been mixing the soap formula causing excess air bubbles that made it float. Customers wrote and told how much they loved that it floated, and it has floated ever since. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
