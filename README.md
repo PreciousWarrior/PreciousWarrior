@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Finland is also known as "the land of of the thousand lakes," because of the over 188,000 lakes found in this country. 
+- ⚡ **Fun fact:** Ho-Ho-Kus, a small town in New Jersey, is the only town in the United States of America that has two dashes in its name. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
