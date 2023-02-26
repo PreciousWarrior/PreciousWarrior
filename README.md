@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In Haiti, only 1 out of every 200 people own a car. This is ironic considering approximately 33% of the country's budget on import is spent on equipment for fuel and transportation.. 
+- ⚡ **Fun fact:** The only English place that has a name that ends with an exclamation mark is "Westward Ho!". 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
