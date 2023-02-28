@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The word "dexterity", to do with skill is related to the right hand. The opposite of the word "deter" is "sinister", to do with evil, it is related to the left hand. 
+- ⚡ **Fun fact:** The average medium size piano has about 230 strings. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
