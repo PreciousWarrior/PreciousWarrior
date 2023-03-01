@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** It takes about 63,000 trees to make the newsprint for the average Sunday edition of The New York Times. 
+- ⚡ **Fun fact:** Oprah Winfrey was the first black woman to anchor a newscast in Nashville at WTVF-TV. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
