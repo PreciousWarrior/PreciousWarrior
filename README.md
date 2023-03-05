@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1693, the postage rate of a letter was determined by how much light went through the letter. The less the light went through the letter the more expensive the rate would be. This technique was referred to as candling. 
+- ⚡ **Fun fact:** The desert tortoise can live without having to drink any water. It extracts the water it needs from the vegetation it eats. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
