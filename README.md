@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Author Dr. Seuss wrote the book "Green Eggs and Ham" because the editor made him a bet that he could not write a book, which contained less than fifty words. 
+- ⚡ **Fun fact:** The Arctic Ocean covers an area of about 14,056,000 sq miles. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
