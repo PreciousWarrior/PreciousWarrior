@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The average weight of a newborn baby is 7 lbs. 6 oz. For a triplet baby it is 3 lbs. 12 oz. 
+- ⚡ **Fun fact:** A monkey was once tried and convicted for smoking a cigarette in South Bend, Indiana. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
