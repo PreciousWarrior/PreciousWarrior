@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The origin of apples traces back to the Middle East over 4,000 years ago. 
+- ⚡ **Fun fact:** The A.A. Milne character of Winnie the Pooh made his animated film debut in 1966 in Winnie the Pooh and the Honey Tree. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
