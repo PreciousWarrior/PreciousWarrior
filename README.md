@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Marlboro was the first cigarette company to market a cigarette that had a red filter called "beauty tip." This was done to hide the lipstick marks left on the filter from women smokers. 
+- ⚡ **Fun fact:** In gangster slang, a boxing match that is fixed is called a "barney.". 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
