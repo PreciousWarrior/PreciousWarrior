@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** One billion pounds of pasta would need approximately 2,021,452,000 gallons of water to cook it. This is equivalent to 75,000 Olympic-size swimming pools. 
+- ⚡ **Fun fact:** The oldest bird on record was Cocky, a cockatoo, who died in the London Zoo at the age of 82. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
