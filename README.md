@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Bees can communicate with other bees by dancing. Their dance can alert other bees as to which direction and the distance nectar and pollen is located. 
+- ⚡ **Fun fact:** In July 1874, a swarm of Rocky Mountain locusts flew over Nebraska covering an area estimated at 198,600 square miles. It is estimated that the swarm contained about 12.5 trillion insects. These insects became extinct thirty years later. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
