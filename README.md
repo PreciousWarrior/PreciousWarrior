@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Coupons were introduced in 1894 when Asa Candler bought the Coca-Cola formula for $2,300 and gave people coupons that he had written out to receive a free glass of coke. 
+- ⚡ **Fun fact:** A sheep, a duck, and a rooster were the first passengers in a hot air balloon. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
