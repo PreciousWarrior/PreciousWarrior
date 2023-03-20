@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The name Santa Claus came from Saint Nicholas who was a bishop in the town of Myra, and was known to be very nice to children. 
+- ⚡ **Fun fact:** Polar bears can eat as much as ten percent of their body weight in less than one hour. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
