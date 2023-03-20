@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Shridhar Chillal from India is known to have the record for the longest fingernails in the world, which were each at least three feet long. 
+- ⚡ **Fun fact:** Some Ribbon worm will eat themselves if they cannot find food. This type of worm can still survive after eating up to 95% of its body weight. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
