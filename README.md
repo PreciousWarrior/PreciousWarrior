@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Because metal was scarce; the Oscars given out during World War II were made of plaster. 
+- ⚡ **Fun fact:** The largest ice cream sundae was made with 4,667 gallons of ice cream, was 12 feet high and had 7000 pounds of toppings on it. This was made in Anaheim, California in 1985. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
