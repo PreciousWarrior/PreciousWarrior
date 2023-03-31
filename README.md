@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** If you have three quarters, four dimes, and four pennies, you have $1.19. You also have the largest amount of money in coins without being able to make change for a dollar. 
+- ⚡ **Fun fact:** Every year Alaska has about 5,000 earthquakes, 1,000 of which measure above 3.5 on the Richter scale. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
