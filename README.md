@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Only 4% of babies are born on their actual due date. 
+- ⚡ **Fun fact:** The largest ketchup bottle in the world is a 170 feet tall and is located in Collinsville, Illinois, USA. It was built in 1949 by the W.E. Caldwell Company as a water tower. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
