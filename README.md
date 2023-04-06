@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Casey Kasem is the voice of Shaggy on the cartoon show "Scooby-Doo." Casey Kasem, being a strict vegetarian, also requested that Shaggy follow the same diet on the show. 
+- ⚡ **Fun fact:** Approximately 75% of human poop is made of water. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
