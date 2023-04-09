@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The more a person struggles to get out of quicksand the faster they will sink. Staying still, and being calm will actually make the body float in the quicksand because the body is less dense than the quicksand is. 
+- ⚡ **Fun fact:** The fat from sheep, which is called tallow can be used to make soap and candles. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
