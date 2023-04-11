@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Seventy-one percent of households report they have at least one snorer. Forty-five percent of those surveyed admit they snore, 35% said their partner snores, 12% said their child snores and 9% reported their pet snores. 
+- ⚡ **Fun fact:** The act of stretching and yawning is referred to as pandiculation. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
