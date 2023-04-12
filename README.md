@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Canada beat Denmark 47-0 at the 1949 world hockey championships. new. 
+- ⚡ **Fun fact:** The windiest place in the world is Mount Washington, New Hampshire, USA. The highest wind was on April 12, 1934 when it reached 231 mph.. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
