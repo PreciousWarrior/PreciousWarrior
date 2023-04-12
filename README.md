@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average 1,668 gallons of water are used by each person in the United States daily. 
+- ⚡ **Fun fact:** The largest hotel in the world is the MGM Grand, which has 5,034 rooms and is located in Las Vegas, Nevada. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
