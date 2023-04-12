@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first box of Crayola that was ever sold had the same eight colours that are sold in the box today consisting of red, blue, yellow, green, violet, orange, black and brown. The box was sold for a nickel in 1903. 
+- ⚡ **Fun fact:** The reason why locusts swarm are because when they are in groups, a "hot-spot" behind their hind legs is stimulated, which in turn causes their destructive nature. A large swarm of locusts can eat eighty thousand tons of corn in a day. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
