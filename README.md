@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Canada is the only country not to win a gold medal in the Summer Olympic games while hosting the event. 
+- ⚡ **Fun fact:** During the making of the the movie "Fight Club," actor Brad Pitt chipped his tooth. However, he did not get his tooth capped until after the movie was done filming as he thought it would look better chipped for his character. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
