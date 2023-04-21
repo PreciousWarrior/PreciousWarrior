@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** When Scott Paper Co. first started manufacturing toilet paper they did not put their name on the product because of embarrassment. 
+- ⚡ **Fun fact:** The chewing gum Juicy Fruit has 10 calories. This is approximately the same as a bite of whole wheat bread. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
