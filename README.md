@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In October 1973, Swedish sweet maker Roland Ohisson of Falkenberg was buried in a coffin made of nothing but chocolate. 
+- ⚡ **Fun fact:** In one day, the Tootsie Roll Industry makes over 16 million lollipops. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
