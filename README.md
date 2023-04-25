@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** 1 in 2000 babies are born with a tooth that is already visible. 
+- ⚡ **Fun fact:** In a study that was done by the University of Chicago in 1907, it was concluded that the easiest color to spot is yellow. This is why John Hertz, who is the founder of the Yellow Cab Company picked cabs to be yellow. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
