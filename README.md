@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The most expensive animated movie is "Prince of Egypt", which cost $70 million to make. 
+- ⚡ **Fun fact:** During World War II, the very first bomb dropped on Berlin by the Allies killed the only elephant in the Berlin Zoo. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
