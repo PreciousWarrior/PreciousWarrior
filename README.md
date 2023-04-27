@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** About 30% of American admit to talking to their dogs or leaving messages on their answering machines for their dogs while they are away. 
+- ⚡ **Fun fact:** The longest word in the English language is 1909 letters long and it refers to a distinct part of DNA. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
