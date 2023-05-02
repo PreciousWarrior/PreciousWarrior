@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Dustin Phillips of the U.S. has the record for ketchup drinking. He drank a 14-ounce bottle of tomato ketchup through a ? inch straw in 33 seconds on September 23, 1999. 
+- ⚡ **Fun fact:** Behram, an Indian thug, holds the record for most murders by a single individual. He strangled 931 people between 1790-1840 with a piece of yellow and white cloth, called a ruhmal. The most murders by a woman are 612, by Countess Erzsebet Bathory of Hungary. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
