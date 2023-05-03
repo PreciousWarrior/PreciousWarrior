@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Arctic Tern, which is a small bird, can fly a round trip from the Arctic to the Antarctic and back. This can be as long as twenty thousand miles per year. This is the longest migration for a bird. 
+- ⚡ **Fun fact:** An average women has 17 square feet of skin. When a women is in her ninth month of pregnancy she has 18.5 square feet of skin. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
