@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Romans used to clean themselves with olive oil since they did not have any soap. They would pour the oil on their bodies, and then use a strigil, which is type of blade, to scrape off any dirt along with the oil. 
+- ⚡ **Fun fact:** Canada has more inland waters and lakes than any other country in the world. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
