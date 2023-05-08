@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** It is very common for babies in New Zealand to sleep on sheepskins. This is to help them gain weight faster, and retain their body heat. 
+- ⚡ **Fun fact:** The total number of episodes for the sitcom "I Love Lucy" was 180. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
