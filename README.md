@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The word "vamp" is used to describe the upper front top of a shoe. 
+- ⚡ **Fun fact:** In India, a 9-year-old girl was "married" to a stray dog, which tribal custom requires in order to protect a child whose first tooth appears on the upper gum. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
