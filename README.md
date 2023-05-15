@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first human heart transplant happened on December 3, 1967. Unfortunately the patient only lived for eighteen days, succumbing in the end to pneumonia. 
+- ⚡ **Fun fact:** 898 tornadoes were recorded to have occurred in the United States in the year 2000.. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
