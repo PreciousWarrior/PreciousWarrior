@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Right-handed people live, on average, nine years longer than left-handed people do. 
+- ⚡ **Fun fact:** Even though a polar bears fur looks white it is actually colourless and is made with hollow tubes. The reason the bear looks white is because the rough inner surface of the tubes make light scatter and reflect at many different angles which gives the white appearance. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
