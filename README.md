@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The most popular treat for Halloween trick-or-treaters are candy bars with Snickers being the most popular. 
+- ⚡ **Fun fact:** The Sears Tower consists of nine framed tubes, which connects nine skyscrapers as one building. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
