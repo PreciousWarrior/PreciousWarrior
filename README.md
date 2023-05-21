@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, Americans eat one hundred acres of pizza a day. This amounts to about three hundred fifty slices per second. 
+- ⚡ **Fun fact:** After the death of the genius, Albert Einstein, his brain was removed by a pathologist and put in a jar for future study. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
