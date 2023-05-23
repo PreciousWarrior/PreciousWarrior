@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first known contraceptive was crocodile dung, used by Egyptians in 2000 B.C. 
+- ⚡ **Fun fact:** In 1960 there were 16,067 gambling slots in Nevada. By 1999, this number rose to 205,726 slots which would be one slot for every 10 people residing there. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
