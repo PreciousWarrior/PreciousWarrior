@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Nutmeg is extremely poisonous if injected intraveinously.. 
+- ⚡ **Fun fact:** In 1785, the city of Paris removed bones from cemeteries to ease the overflow of dead people. They took these bones and stacked them in tunnels now known as the Catacombs. You can visit these tunnel attractions and work your way along long corridors, which are stacked with skulls and bones. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
