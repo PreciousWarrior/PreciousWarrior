@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Research on pigs led to the development of CAT scans.. 
+- ⚡ **Fun fact:** The words moron, imbecile, and idiot are not interchangable. The one with the highest level of intelligence is a moron, followed, by an imbecile, and then idiot. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
