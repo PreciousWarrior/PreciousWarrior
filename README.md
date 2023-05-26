@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Wham-O manufactured twenty-thousand hula-hoops a day at the peak of hula-hoop popularity in 1958. 
+- ⚡ **Fun fact:** In 1747, the first American mention of the Christmas tree occurred. However, it was a not a tree but instead a pyramid made out of wood and decorated with apples and evergreen boughs. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
