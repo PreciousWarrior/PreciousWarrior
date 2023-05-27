@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first jigsaw puzzle was created by map maker John Splisbury who mounted one of his maps on a sheet of hardwood. He proceeded to cut around the borders of each country use a fine saw. 
+- ⚡ **Fun fact:** In the U.S. the most common excuse made to get out of paying a ticket is to say they missed the sign. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
