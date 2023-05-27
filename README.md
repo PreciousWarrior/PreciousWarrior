@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The first tattoo machine was invented by Samuel O'Reilly. He did this by using equipment that Thomas Edison used to engrave hard surfaces.. 
+- ⚡ **Fun fact:** German immigrant, Louis Prang was the first to bring Christmas cards to America. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
