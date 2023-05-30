@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** It is not possible to tickle yourself. The cerebellum, a part of the brain, warns the rest of the brain that you are about to tickle yourself. Since your brain knows this, it ignores the resulting sensation. 
+- ⚡ **Fun fact:** The White House has a movie theater, swimming pool, bowling lane, jogging track, and a tennis court. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
