@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** When the volcano Krakatoa off the Java islands exploded in 1883, it was so loud that it woke some people up in South Australia. 
+- ⚡ **Fun fact:** Cheetahs are the fastest land animal and can reach speeds up to 72mph. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
