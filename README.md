@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** French artist, Michel Vienkot, uses cow dung as paint when he creates his pictures. 
+- ⚡ **Fun fact:** False Bay, on the southern tip of Africa and close to Cape Town, South Africa, is a breeding ground for great white sharks, which feed off the thousands of seals in the bay. However, it is the only area in the known world in which these sharks are known to breach - they attack the seals by coming up vertically, often leaping clear of the water with their prey in their mouths. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
