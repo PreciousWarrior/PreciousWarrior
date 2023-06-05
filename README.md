@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The fastest speed a raindrop had reached when falling is seven miles per hour.. 
+- ⚡ **Fun fact:** In 1968, Abbie Hoffman played with a yo-yo while testifying before a congressional committee. He was found in contempt. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
