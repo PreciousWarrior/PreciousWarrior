@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The USA bought Alaska from Russia for 2 cents an acre. 
+- ⚡ **Fun fact:** John Van Wormer invented paper milk cartons after dropping a bottle of milk one morning. The bottle broke spilling the milk everywhere. That annoyance was enough for Van Wormer to come up with the idea.. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
