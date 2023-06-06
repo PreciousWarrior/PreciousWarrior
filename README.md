@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Research indicates that mosquitoes are attracted to people who have recently eaten bananas. 
+- ⚡ **Fun fact:** Over one million Pet Rocks were sold in 1975, makine Gary Dahl, of Los Gatos, California, a millionaire. He got the idea while joking with friends about his pet that was easy to take care of, which was a rock. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
