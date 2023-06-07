@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Americans, on average, spend 18% of his or her income on transportation as compared to only 13% spent on food. 
+- ⚡ **Fun fact:** Romans used to believe that walnuts could cure head ailments during the Renaissance, since their shape was similar to that of a brain. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
