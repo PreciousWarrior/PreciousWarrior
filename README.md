@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Consuming chocolate was once considered a sin during the 16th and 17th century. During that time it was provided in the form of a drink and since drinking wine during lent was a sin, so was drinking chocolate. 
+- ⚡ **Fun fact:** The Montreal Canadians hockey team has won the most Stanley Cups with 24. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
