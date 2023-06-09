@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Crayola colour flesh was changed to peach in 1962 because of the fact that people have many different skin colours. 
+- ⚡ **Fun fact:** The Central African raffia palm is known to have the longest leaves. The leaves can measure up to 82.5 feet long.. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
