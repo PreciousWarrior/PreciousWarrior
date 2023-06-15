@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The two factories of the Jelly Belly Candy Company produces approximately 100,000 pounds of jelly beans a day. this amounts to about 1,250,000 jelly beans an hour. 
+- ⚡ **Fun fact:** The longest town name in the world has 167 letters. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
