@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1923, the first neon sign was introduced in the U.S. Two neon signs were sold to a Packard car dealership for $24,000 which read, "Packard.". 
+- ⚡ **Fun fact:** In just one drop of liquid, 50 million bacteria can be present. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
