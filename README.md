@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, an American home has 3-10 gallons of hazardous materials. 
+- ⚡ **Fun fact:** In 1978, the World Water Speed record was made by Ken Warby from Australia. His average speed was 317.6 mph, and his jet-powered hydroplane was 27 feet long called "Spirit of Australia." Warby built the boat himself in his back yard. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
