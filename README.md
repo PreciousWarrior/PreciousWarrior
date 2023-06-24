@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** People over the age of fifty will start to lose their dislike for foods that taste bitter. 
+- ⚡ **Fun fact:** In China, pancakes are generally served as side dishes. They are stuffed with meat, bean sprouts, and other vegetables. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
