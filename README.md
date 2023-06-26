@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** On average, 35 meters of hair fibre is produced on the adult scalp. 
+- ⚡ **Fun fact:** There is a certain type of Hawk Moth caterpillar from Brazil that inflates its thorax, which makes its head look like a head of a snake when it feels it is in danger or alarmed. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
