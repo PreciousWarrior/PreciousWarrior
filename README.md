@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Oak trees do not produce acorns until they are fifty years of age or older. 
+- ⚡ **Fun fact:** Parma ham is only Parma ham if it is made in the Parma region of Italy. The British chain supermarket Asda, made and packaged its own "Parma ham" and was successfully sued by the real Parma ham people (Parma Ham Trade Association). 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
