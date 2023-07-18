@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Dentyne gum was invented in 1899 by a druggist from New York named Franklin V. Canning. 
+- ⚡ **Fun fact:** In the Netherlands, there are special traffic lanes for bicycles. There are approximately 17,000 kms of cycle lanes with special bicycle traffic lights.. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
