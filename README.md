@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Some dolphins can swim up to 40 kilometers an hour. 
+- ⚡ **Fun fact:** In 1949 UNICEF produced the first charity Christmas card. The picture shown on the card was painted by a seven year old girl. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
