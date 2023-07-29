@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The famous jewelry store Tiffany - ⚡ **Fun fact:** Did you know that there are coffee flavored PEZ?.  Co. was established on September 18, 1837 in New York City. The amount of sales that were made the first day were $4.98. 
+- ⚡ **Fun fact:** There are an average of 178 sesame seeds on a McDonald's Big Mac bun.. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
