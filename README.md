@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** A butterfly has to have a body temperature greater than 86 degrees to be able to fly. 
+- ⚡ **Fun fact:** Sawney Beane, his wife, 8 sons, 6 daughters, and 32 grandchildren were a family of cannibals that lived in the caves near Galloway, Scotland in the early 17th Century. Although the total number is not known, it is believed they claimed over 50 victims per year. The entire family was taken by an army detachment to Edinburgh and executed, apparently without trial. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
