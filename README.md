@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The popular chocolate bar "Three Musketeers" got its name because when it was first introduced in 1932 there were three individual bars. The flavours were strawberry, chocolate, and vanilla. 
+- ⚡ **Fun fact:** In proportion, if Jupiter were a basketball, then the sun would be the size of the Louisiana Super Dome. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
