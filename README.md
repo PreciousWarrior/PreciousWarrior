@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** White-Out was invented by Bette Nesmith Graham, who is the mother of Michael Nesmith from the "The Monkees.". 
+- ⚡ **Fun fact:** It would take approximately twenty-four trees that are on average six to eight inches in diameter to produce one ton of newsprint for the Sunday edition of the New York Times. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
