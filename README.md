@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In the 1940s, the FCC assigned television's Channel 1 to mobile Services(two-way radios in taxicabs, for instance) but did not re-number theotherchannel assignments. That is why your TV set has channels 2 and up, butnochannel 1.. 
+- ⚡ **Fun fact:** The desert tortoise can live without having to drink any water. It extracts the water it needs from the vegetation it eats. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
