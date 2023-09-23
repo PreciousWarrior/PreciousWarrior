@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1888, an Egyptian peasant discovered an estimated three hundred thousand mummified cats in Beni Hassan, Egypt. Of the cats that were not stolen once, the find was made public, the remaining mummified cats were shipped to Great Britain to be used as agricultural fertilizer. 
+- ⚡ **Fun fact:** Vikings, after killing their enemies, used their skulls as drinking vessels. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
