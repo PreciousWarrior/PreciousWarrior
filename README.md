@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The reason why bubbles are round is because this is the most efficient shape that the soap film can take for the amount of air trapped inside. 
+- ⚡ **Fun fact:** TYPEWRITER, is one of the longest words that can be made using the letters only one row of the keyboard. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
