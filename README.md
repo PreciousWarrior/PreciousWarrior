@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 1948 and 1950 the oldest ears of popping corn were discovered. They were located in the Bat Cave of west central New Mexico. They ranged in size from smaller than a penny to approximately two inches, and were about 4,000 years old. 
+- ⚡ **Fun fact:** When Nylons first went on sale in the United States in 1940, four million pairs were sold in only a few days. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
