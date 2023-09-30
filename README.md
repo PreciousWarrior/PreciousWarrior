@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** In 2002, dogs have killed more people in the U.S. than the Great White shark has killed in the past 100 years. 
+- ⚡ **Fun fact:** English sailors were referred to as "limeys" because sailors added lime juice to their diet to combat scurvy. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
