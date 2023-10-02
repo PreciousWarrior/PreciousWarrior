@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The original meaning of the word grocer was referring to a person who traded food in wholesale. These people would usually sell in large quantities, or by the "gross.". 
+- ⚡ **Fun fact:** The Indian election in 1984 was the largest election of any country. Over 379,000,000 voters were eligible to vote at over 480,000 polling stations. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
