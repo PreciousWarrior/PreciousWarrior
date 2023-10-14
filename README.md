@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Alexandre Gustave Eiffel, the man who designed the Eiffel Tower, also designed the inner structure of the Statue of Liberty in New York Harbour. 
+- ⚡ **Fun fact:** The first spacecraft to visit the planet Venus was Mariner 2 in 1962.. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
