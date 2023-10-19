@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** There is a "cemetery town" in California named Colma. Concerns about the public health, crime, and the need for space forced the city of San Francisco to outlaw burials in 1902. The city of Colma, which is five miles south of San Francisco, was established to bury the dead. The ratio of dead to living people is 750 to 1. 
+- ⚡ **Fun fact:** Smelling bananas can help a person lose weight. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
