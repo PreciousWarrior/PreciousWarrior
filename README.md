@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Every single hamster in the United States today comes from a single litter captured in Syria in 1930. 
+- ⚡ **Fun fact:** The fleshy bulbs on each side of your nose are called the Alea (AY-lee) singular Ala (AY-luh). 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
