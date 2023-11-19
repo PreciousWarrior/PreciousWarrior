@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** Close to 50% of the water used in a home originates from the bathroom. 
+- ⚡ **Fun fact:** The reason the Animal Crackers box is designed with a string handle is because when the popular circus theme was introduced in 1902 they thought it would also be a good idea to package them with a string as a Christmas novelty so they could be hung from Christmas trees. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
