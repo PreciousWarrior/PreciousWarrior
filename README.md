@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The Canadian holiday Boxing Day got its name from the custom of giving. Servants were given boxes which had money hidden inside them from their employers. The servants would have to break the box into pieces to get the money. 
+- ⚡ **Fun fact:** Cost of raising a medium-size dog to the age of eleven: $6,400. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
