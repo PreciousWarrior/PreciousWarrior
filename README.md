@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** From 1526 to 1707, the first six Mogul emperors of India ruled in unbroken succession from father to son. 
+- ⚡ **Fun fact:** 7-Eleven was the first convenience store to have television advertising. The animated commercial ran in 1949 and had a singing rooster and owl. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
