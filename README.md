@@ -1,7 +1,7 @@
 ### Hello there<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px" height="20px">
 
 - 😄 **Pronouns:** He/Him
-- ⚡ **Fun fact:** The same amount of calories are burned by doing 6 sessions that are 5 minutes each of an activity and doing 1 session of that activity for 30 minutes. 
+- ⚡ **Fun fact:** The act of sneezing is referred to as sternutation. 
   
 I'm a self-taught developer, tech enthusiast and high school student. I love development, Linux and open source! If you would like to contact me, send me a message on [Discord](https://discord.gg/S22r5H3a2W).
   
